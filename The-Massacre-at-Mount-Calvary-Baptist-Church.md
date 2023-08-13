@@ -1,0 +1,1 @@
+This is the #Mission23 wiki page for the massacre which occurred at Mount Calvary Baptist Church in Lexington, KY.  Until this page is completed, we recommend you visit the existing repo [here](https://github.com/MCBCMF/MCBCMassacre).
