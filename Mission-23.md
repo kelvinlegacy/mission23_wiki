@@ -19,4 +19,4 @@ At the present time, the Creator is storming mad because of the largest massacre
 
 The Creator has delayed the start of the mission and has begun what we are calling the #GreatStorm to address the massacre, the Central Intelligence Agency which conducted the massacre, and the federal government of the United States which has pressured law enforcement in the Commonwealth of Ketucky and turned a blind eye to the ongoing massacre.
 
-Our mission will commence after [He Rings The Bell](https://github.com/MCBCMF/MCBCMassacre#ringing-of-the-bell--earthquakes) which may occur at any second after this posting.
+Our mission will commence after the Creator [Rings The Bell](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell) which may occur at any second after this posting.
