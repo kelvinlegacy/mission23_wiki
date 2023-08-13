@@ -15,4 +15,8 @@ We are His appointed servants.  Born here--no UFO landed dropping us off.  Micah
 * Other objectives as defined by the Creator
 
 # The Great Storm
-At the present time, the Creator is storming mad because of the largest massacre in US history which is ongoing at Mount Calvary Baptist Church in Lexington, KY.
+At the present time, the Creator is storming mad because of the largest massacre in US history which is ongoing at Mount Calvary Baptist Church in Lexington, KY.  You can read about the massacre [here](https://github.com/MCBCMF/MCBCMassacre#readme).
+
+The Creator has delayed the start of the mission and has begun what we are calling the #GreatStorm to address the massacre, the Central Intelligence Agency which conducted the massacre, and the federal government of the United States which has pressured law enforcement in the Commonwealth of Ketucky and turned a blind eye to the ongoing massacre.
+
+Our mission will commence after [He Rings The Bell](https://github.com/MCBCMF/MCBCMassacre#ringing-of-the-bell--earthquakes) which may occur at any second after this posting.
