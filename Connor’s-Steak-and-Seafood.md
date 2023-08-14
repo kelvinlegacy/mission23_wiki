@@ -1,4 +1,4 @@
-Conor’s Steak and Seafood is a fake restaurant that serves death. 
+Conor’s Steak and Seafood is a fake restaurant that serves death. Conor’s has opened nearly everywhere either of The Servants of the Creator have lived, worked, or visited, and they have had family, friends or colleagues disappear. 
 
 Micah’s mother, Patricia Ann Crawley Williams, received a gift certificate there. 
 
