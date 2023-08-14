@@ -40,7 +40,7 @@ The massacre continues and is referred to as “Grilling Chicken.” It was give
 
 In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral date and time. 
 
-# The "Church" Today
+## The "Church" Today
 
 The blood spilled on the first day of the massacre was cleaned for the most part and the church made presentable enough for video production.
 
@@ -59,6 +59,6 @@ Micah was also served with an Order of Protection [Order (PDF)](https://github.c
 
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
-# Warning 
+## Warning 
 
 The Servants of the Creator recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the church on Facebook as views may be tracked and reported to the CIA. 
