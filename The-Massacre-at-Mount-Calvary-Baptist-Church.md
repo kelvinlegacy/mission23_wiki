@@ -2,6 +2,8 @@ This is the #Mission23 wiki page for the massacre which occurred at Mount Calvar
 
 Until this page is completed, we recommend you visit the existing repo [here](https://github.com/MCBCMF/MCBCMassacre).
 
+Share this widely! The more people who read it, the safer everyone is. There truly is safety and numbers. Shine a spotlight on this!
+
 ***
 
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
@@ -50,12 +52,12 @@ To write the first letter Micah visited a public library in Riverdale, GA.  Whil
 
 The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
 
-* Micah writes to Rev. Dr. Felix G. Williams, III expressing concern for the church and taking action, as a member, to protect the church and stop any further bloodshed. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230506-LetterToMCBC.pdf)
-* "Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. responds to Micah, denying the allegations and is extremely out-of-character to Micah. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230506-ResponseToKEW.pdf)
-* Attorney Yavon L. Griffin sends a Cease & Desist to Micah. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230526-CeaseAndDesist.pdf)
-* Micah responds to Attorney Yavon L. Griffin. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
+* Micah writes to Rev. Dr. Felix G. Williams, III expressing concern for the church and taking action, as a member, to protect the church and stop any further bloodshed. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-LetterToMCBC.pdf)
+* "Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. responds to Micah, denying the allegations and is extremely out-of-character to Micah. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-ResponseToKEW.pdf)
+* Attorney Yavon L. Griffin sends a Cease & Desist to Micah. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230526-CeaseAndDesist.pdf)
+* Micah responds to Attorney Yavon L. Griffin. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
 
-Micah was also served with an Order of Protection [Order (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
+Micah was also served with an Order of Protection [Order (PDF)](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
 
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
