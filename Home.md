@@ -14,7 +14,7 @@ Currently https://CIAKill.site and https://CIAMassacre.site are forwarded here t
 
 The Creator does not ever intervene in human events. Ever. Once humans decide to do something, they will do it. When blocked or prevented by an unseen force, human nature is to escalate their actions. 
 
-We see escalations all the time. When you’re hammering a nail and it doesn’t go in, you swing the hammer harder, change your grip, and sometimes end up a hammering your thumb. 
+We see escalations all the time. When you’re hammering a nail and it doesn’t go in, you swing the hammer harder, change your grip, and sometimes end up an injuring yourself. 
 
 Another reason He doesn’t is… Where does it stop? He help one situation, He must help them all. When we have perfection everywhere, there’s no reason to live. Utopias sound great on paper, but in practice they bring an end to the Creator’s vision. All conscious entities actually need something to focus on, to fix, so that we want to wake up tomorrow. 
 
