@@ -32,7 +32,7 @@ The church was partially rehabbed and videos were produced to portray a sense of
 
 [[https://github.com/Mission23/Mission23/blob/master/assets/mcbc_front.jpg|alt=MCBC]]
 
-This screen capture obtained from the Mount Calvary Missionary Baptist website clearly shows the interior of Mount Calvary Baptist Church and the impersonated Rev. Dr. Felix G. Williams, III wearing no pastoral robe and tennis shoes during a Sunday morning worship session. 
+This screen capture obtained from the Mount Calvary Missionary Baptist Church Facebook page (see warning below) clearly shows the interior of Mount Calvary Baptist Church and the impersonated Rev. Dr. Felix G. Williams, III wearing no pastoral robe and tennis shoes during a Sunday morning worship session. 
 
 Missing in the photo, our piano (on the left) and our organ (on the right) they have been removed and pews from the back wall of the church put in their place. Also the choir, the choir stands have been wrecked and mostly empty--men randomly hang out there in the videos the charade church is producing now. The altar and lectern are new, the altar sized to fit between the two out of place pews. Mount Calvary Baptist Church would have never advertised its web address on the lectern. 
 
@@ -45,3 +45,7 @@ In addition to Sunday services, the CIA has held funerals at the church for thos
 The Facebook page and in correspondence calls the church Mount Calvary Missionary Baptist Church, and in some correspondence its a corporation.
 
 The CIA called added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
+
+# Warning 
+
+The Servants of the Creator recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the church on Facebook as views may be tracked and reported to the CIA. 
