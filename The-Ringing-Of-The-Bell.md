@@ -21,7 +21,7 @@ This earthquake’s epicentre will be in Jessamine county, KY. It will signal wh
 
 This minor quake will also be to recognise the lives lost in Jessamine county, mostly Micah’s friends, throughout the larger tragedy. 
 
-## The TomTom Quake
+## The Thomas Quake
 This earthquake’s epicentre will be in Kanawha county (Hughes Creek), WV. It will signal when TomTom (to practically everyone TomTom, to others Thomas, born: September 23, 1978) has started his mission for the Creator. This also is TomTom’s 23rd mission on Earth. 
 
 This minor quake will also recognise the lives lost in Kanawha county, mostly TomTom’s friends and family, throughout the larger tragedy. 
