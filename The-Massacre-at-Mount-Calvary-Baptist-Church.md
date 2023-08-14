@@ -40,11 +40,24 @@ The massacre continues and is referred to as “Grilling Chicken.” It was give
 
 In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral date and time. 
 
-## Same Church, New Name & Denomination 
+# The "Church" Today
 
-The Facebook page and in correspondence calls the church Mount Calvary Missionary Baptist Church, and in some correspondence its a corporation.
+The blood spilled on the first day of the massacre was cleaned for the most part and the church made presentable enough for video production.
 
-The CIA called added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
+When Micah (born: Kelvin Eugene Williams), a lifelong member of the Mount Calvary Baptist Church, learned of the massacre he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  The correspondence and actions of the CIA before and after the initial letter clearly indicate that they in fact did conduct the massacre.
+
+To write the first letter Micah visited a public library in Riverdale, GA.  While using a public terminal, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator's session of VMWare Horizons (a PCOIP platform).  He left the library at the Creator's instruction as military aircraft were approaching.  The Creator instructed him to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.
+
+The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
+
+* Micah writes to Rev. Dr. Felix G. Williams, III expressing concern for the church and taking action, as a member, to protect the church and stop any further bloodshed. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230506-LetterToMCBC.pdf)
+* "Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. responds to Micah, denying the allegations and is extremely out-of-character to Micah. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230506-ResponseToKEW.pdf)
+* Attorney Yavon L. Griffin sends a Cease & Desist to Micah. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230526-CeaseAndDesist.pdf)
+* Micah responds to Attorney Yavon L. Griffin. [Letter (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
+
+Micah was also served with an Order of Protection [Order (PDF)](https://github.com/Mission23/mcbcmf/blob/base/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
+
+The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
 # Warning 
 
