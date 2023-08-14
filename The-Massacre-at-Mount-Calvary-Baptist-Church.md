@@ -67,7 +67,7 @@ The CIA has learned, from eavesdropping and in-person, although cloaked (invisib
 
 They also realized they had to do something to counter the actions taken by Micah in his initial letter since Rev. Williams never submitted to the oral swab for DNA testing. After hearing Micah say, “To become a member of Mount Calvary one has to get in their ass in the baptismal, there’s simply no other way.” The CIA cleaned the chemical cremation, installed a seat, and begin baptizing new members. 
 
-[[https://github.com/Mission23/MCBCMF/blob/master/assets/Photos/Baptism.JPG|alt=MCBC]]
+[[https://github.com/Mission23/mcbcmf/blob/base/assets/Photos/Baptism.JPG|alt=Baptism]]
 
 Micah lost his mind. 
 
