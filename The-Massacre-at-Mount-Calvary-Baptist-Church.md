@@ -43,3 +43,5 @@ In addition to Sunday services, the CIA has held funerals at the church for thos
 ## Same Church, New Name & Denomination 
 
 The Facebook page and in correspondence calls the church Mount Calvary Missionary Baptist Church, and in some correspondence its a corporation.
+
+The CIA called added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
