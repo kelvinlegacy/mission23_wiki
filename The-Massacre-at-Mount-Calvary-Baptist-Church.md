@@ -34,6 +34,12 @@ The church was partially rehabbed and videos were produced to portray a sense of
 
 This screen capture obtained from the Mount Calvary Missionary Baptist website clearly shows the interior of Mount Calvary Baptist Church and the impersonated Rev. Dr. Felix G. Williams, III wearing no pastoral robe and tennis shoes during a Sunday morning worship session. 
 
-Missing in the photo, our piano (on the left) and our organ (on the right) they have been removed and pews from the back wall of the church put in their place. Also the choir, the choir stands have been wrecked and mostly empty--men randomly hang out there in the videos the charade churches are producing now. The altar and lectern are new, the altar sized to fit between the two out of place pews. Mount Calvary Baptist Church would have never advertised its web address on the lectern. 
+Missing in the photo, our piano (on the left) and our organ (on the right) they have been removed and pews from the back wall of the church put in their place. Also the choir, the choir stands have been wrecked and mostly empty--men randomly hang out there in the videos the charade church is producing now. The altar and lectern are new, the altar sized to fit between the two out of place pews. Mount Calvary Baptist Church would have never advertised its web address on the lectern. 
 
-The massacre continues and is referred to as “Grilling Chicken.” It was given this moniker due to the fact that people are murdered as they arrive or in smaller more manageable groups. In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral. 
+The massacre continues and is referred to as “Grilling Chicken.” It was given this moniker due to the fact that people are murdered as they arrive or in smaller more manageable groups. 
+
+In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral date and time. 
+
+## Same Church, New Name & Denomination 
+
+The Facebook page and in correspondence calls the church Mount Calvary Missionary Baptist Church, and in some correspondence its a corporation.
