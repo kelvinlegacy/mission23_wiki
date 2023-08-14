@@ -63,6 +63,18 @@ The letter was completed the following day at Atlanta's Central Library while Mi
 
 Micah was also served with an Order of Protection [Order (PDF)](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
 
+The CIA has learned, from eavesdropping and in-person, although cloaked (invisible to Micah), surveillance of his apartment that their charade is very easy to recognize by anyone who’s ever attended church regularly. In an effort to improve it, they have had their actors studying footage of Mount Calvary Baptist Church.
+
+They also realized they had to do something to counter the actions taken by Micah in his initial letter since Rev. Williams never submitted to the oral swab for DNA testing. After hearing Micah say, “To become a member of Mount Calvary one has to get in their ass in the baptismal, there’s simply no other way.” The CIA cleaned the chemical cremation, installed a seat, and begin baptizing new members. 
+
+[[https://github.com/Mission23/MCBCMF/blob/master/assets/Photos/Baptism.JPG|alt=MCBC]]
+
+Micah lost his mind. 
+
+It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance to the baptismal.” (He’s intentionally withholding the song.)
+
+Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.”
+
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
 ## Warning 
