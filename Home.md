@@ -2,7 +2,7 @@ Welcome to the #Mission23 wiki.
 
 This wiki will cover topics related to The Servants of the Creator’s mission on Earth.
 
-The Servants of the Creator were appointed by the Creator over six billion years ago and are sent anywhere in His creation (called the “universe” here on Earth) where life exists and its continued existence is threatened or could be improved. 
+The Servants of the Creator were appointed by the Creator over six billion years ago and are sent anywhere in His creation (called the “universe” here on Earth, His creation doesn’t end there—-there’s way more) where life exists and its continued existence is threatened or could be improved. 
 
 The wiki is currently being used to get information out to all interested parties. We know, the articles do not meet the standards of Wikipedia, we hope to fix that when time permits. 
 
