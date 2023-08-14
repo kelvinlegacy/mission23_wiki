@@ -1,1 +1,1 @@
-#Mission23 Wiki.  #PrayToVerify anything you see here.
+[#Mission23 Wiki](https://github.com/Mission23/Mission23/wiki).  [#PrayToVerify](https://github.com/Mission23/Mission23/wiki/%23PrayToVerify) anything you see here.
