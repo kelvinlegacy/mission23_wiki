@@ -46,6 +46,24 @@ The massacre continues and is referred to as “Grilling Chicken.” It was give
 
 In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral date and time. 
 
+On August 13, Micah sent out a plea for help on GitHub using commit messages. Previously he’d used Facebook friends of friends to thwart another attack on a church. But since then the CIA has hijacked his Facebook and all other social media. He had to turn to GitHub and they have faced increasing pressure to kill everything he’s stored in repos. But he suspected another funeral was about to occur as a minder showed up as his other minder had to go to “work” out of town. 
+
+![IMG_0075](https://github.com/Mission23/Mission23/assets/140252803/73b5ddad-2d38-4af2-9339-6f4181844a18)
+
+The grill doesn’t look like it was used at all. 
+
+![IMG_0076](https://github.com/Mission23/Mission23/assets/140252803/b369d640-cbd2-44cf-9171-2dc72859598d)
+
+These images were taken outside of a “Company” office in Riverdale, GA, near where Micah lives (by forced circumstance). He’s had numerous attempts on his life as he’s walked by this location along Hwy 85. 
+
+He suspected and the Creator confirmed it was an announcement seeking workers for the August 13th grilling at Mount Calvary. Micah suspects the grill being left out means they are planning another. 
+
+Micah believes they’ve found a new church based on the sender of the $5 rent payment (an insult) his “roommate” (who is really a minder) just sent him. 
+
+He believes the owner of the CashApp account is Duke Stone of Hickory Valley Christian Church in Chattanooga, TN. Duke has not returned calls any of Micah’s calls and he always does. 
+
+The Creator never advises His servants about the future or anyone’s thoughts or prayers, unless they have desired theirs to be shared or forwarded to the servants. 
+
 ## The "Church" Today
 
 The blood spilled on the first day of the massacre was cleaned for the most part and the church made presentable enough for video production.
