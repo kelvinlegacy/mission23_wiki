@@ -6,6 +6,8 @@ These are the last known images of the them. They are shown as received. The ima
 
 [[https://github.com/Mission23/Mission23/blob/master/assets/kennedy_patricia.jpg|alt=]]
 
+Do note the lack of water at this private dining establishment. Micah’s family had enough time to pull out their phones to take photos. 
+
 [[https://github.com/Mission23/Mission23/blob/master/assets/karrington_katrina.jpg|alt=]]
 
 The image of Karrington and Katrina show three individuals in the background, “Brian”, Annie, and “Michael.” 
@@ -15,3 +17,11 @@ Micah knew Brian and Michael as homeless in Atlanta, but has since learned they 
 The images were received when Micah demanded a video conference after receiving gruesome artwork in his bedroom depicting them beheaded. The individual pretending to be his sister said they were at dinner and sent these photos. 
 
 His family has not been heard from despite repeated attempts to call even engaging local police in Alabama and his sister’s office where she was a probation officer for the State of Alabama. 
+
+From what the TSOTC have ascertained, these gift certificates have a face value in the hundreds of dollars and the menus are very attractive. The gift certificates are sent from entities that people inherently trust, Micah’s mother received one from the FBI, but it was really from the CIA. 
+
+The scheme works well for individuals they target, and feel they need to kill to cover up the entire tragedy, who have firearms at home or live in high rise condominiums where their chance of being caught is high. 
+
+The Servants of the Creator are concerned that more gift certificates are being sent to individuals at companies which have merely provided services or support to them recently, or those who have learned of the tragedy. 
+
+No one ever leaves these restaurants alive. If you receive a gift certificate BURN IT. ID is not checked, everyone in the party will be seated and killed. 
