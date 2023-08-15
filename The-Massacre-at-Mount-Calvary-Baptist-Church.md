@@ -93,15 +93,20 @@ It took him a while to realize how they could get it so wrong and then he figure
 
 Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.”
 
-## Blame Game
-Micah learned, after the CIA first tried to tell him that his white brother-in-law was involved with the assault on Mount Calvary and after hearing locals in Riverdale talk about how racism played a role there (they are unaware of the true number of victims—they’re told ten died). Riverdale seems to be a testing ground for explanations. 
+## Motive
+Micah does not believe and the Creator has confirmed, it was not racially motivated. 
 
-Micah does not believe and the Creator has confirmed, it was not racially motivated. It was continuing a cover up of the CIA’s destruction of Orr Chapel and the murder of its members in Sandy Hook, TN, the digging up of two graveyards there and the nearly complete erasure of the Rogers and Crawley families in Sandy Hook, along with the Hawkins and Williams families in SW Kentucky around Guthrie, the still-living Micah is a problem for them. 
+The massacre at Mount Calvary was continuing a cover up of the CIA’s misdeeds in Sandy Hook, TN.  
+
+In order to never have those misdeeds known, the CIA has to completely erase Micah’s family and anyone who may know them. 
+
+Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount Calvary Baptist Church and very active there. For a long time she was on the usher board and read the church announcements, putting her in front of thousands of worshippers over the years both from Mount Calvary and visiting congregations. 
 
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
 ## Warning 
-
 The Servants of the Creator recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the church on Facebook as views may be tracked and reported to the CIA. 
 
-If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agree the best thing to do is to deny any relationship with or knowledge of the church to everyone. Once TSOTC announce they have taken control of the property it will be safe to visit. Sadly, the church has more than likely seen its last worship session. Micah will meet with any member and vote on its future, at the present, it will likely have every surface covered so that visitors can’t destroy it (Micah calls this “putting it under glass.”), they will want to come pay their respects. 
+If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agrees the best thing to do is to deny any relationship with, or knowledge of the church to anyone that asks. 
+
+Once the SOTC announce they have taken control of the property it will be safe to visit. Sadly, the church has more than likely seen its last worship session. 
