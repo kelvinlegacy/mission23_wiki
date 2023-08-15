@@ -1,4 +1,4 @@
-Current Status: 
+# TSOTC Currently 
 
 ## Micah
 * Just witnessed a bomb blast and the Creator fixing it. 
