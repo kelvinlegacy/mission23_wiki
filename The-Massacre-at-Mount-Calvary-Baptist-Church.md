@@ -12,7 +12,7 @@ The city of Lexington spans every square inch of Fayette county. The location of
 
 ![IMG_0065](https://github.com/Mission23/Mission23/assets/140252803/b157497c-8599-4f96-a21e-f31a97de71c6)
 
-## Frying Chicken
+## The Initial Massacre 
 
 The massacre started on April 2, 2023 when the CIA stormed the church near the end of the morning worship session. 
 
@@ -28,9 +28,13 @@ Members of the congregation were pulled to the front of the church, in a two by 
 
 The bodies of those slain were placed in the baptismal which had chemicals added to the existing water to chemically cremate them. 
 
-The initial operation is referred to by the CIA as “Frying Chicken.” Due to the resistance they encountered from congregants as they fought back for their lives. 
+### “Frying Chicken”
 
-## Grilling Chicken
+The initial operation is referred to by the CIA and others as “Frying Chicken.” 
+
+Just as chicken that is frying can seemingly fight you back (with hot grease splattering), so can human beings when their sanctuary is invaded and lives threatened.
+
+## The Ongoing Massacre 
 
 The church was partially rehabbed and videos were produced to portray a sense of normalcy. Visitors to the church anytime the church has been opened since have been murdered. 
 
@@ -39,6 +43,8 @@ The church was partially rehabbed and videos were produced to portray a sense of
 This screen capture obtained from the Mount Calvary Missionary Baptist Church Facebook page (see warning below) clearly shows the interior of Mount Calvary Baptist Church and the impersonated Rev. Dr. Felix G. Williams, III wearing no pastoral robe and tennis shoes during a Sunday morning worship session. 
 
 Missing in the photo, our piano (on the left) and our organ (on the right, the organ in the choir stand is much smaller and is located in other places in later videos) they have been removed and pews from the back wall of the church put in their place. Also the choir, the choir stands have been wrecked and mostly empty--men randomly hang out there in the videos the charade church is producing now. The altar and lectern are new, the altar sized to fit between the two out of place pews. Mount Calvary Baptist Church would have never advertised its web address on the lectern. 
+
+### “Grilling Chicken”
 
 The massacre continues and is referred to as “Grilling Chicken.” It was given this moniker due to the fact that people are murdered as they arrive to services at the church. 
 
