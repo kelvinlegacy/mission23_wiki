@@ -54,7 +54,7 @@ The grill doesn’t look like it was used at all.
 
 ![IMG_0076](https://github.com/Mission23/Mission23/assets/140252803/b369d640-cbd2-44cf-9171-2dc72859598d)
 
-These images were taken outside of a “Company” office in Riverdale, GA, near where Micah lives (by forced circumstance). He’s had numerous attempts on his life as he’s walked by this location along Hwy 85. 
+These images were taken outside of a “Company” (what the CIA often refers to itself as to hide its true identity) office in Riverdale, GA, near where Micah lives (by forced circumstance). He’s had numerous attempts on his life as he’s walked by this location along Hwy 85. 
 
 He suspected and the Creator confirmed it was an announcement seeking workers for the August 13th grilling at Mount Calvary. Micah suspects the grill being left out means they are planning another. 
 
@@ -92,6 +92,11 @@ Micah lost his mind.
 It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance to the baptismal.” (He’s intentionally withholding the song.)
 
 Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.”
+
+## Blame Game
+Micah learned, after the CIA first tried to tell him that his white brother-in-law was involved with the assault on Mount Calvary and after hearing locals in Riverdale talk about how racism played a role there (they are unaware of the true number of victims—they’re told ten died). Riverdale seems to be a testing ground for explanations. 
+
+Micah does not believe and the Creator has confirmed, it was not racially motivated. It was continuing a cover up of the CIA’s destruction of Orr Chapel and the murder of its members in Sandy Hook, TN, the digging up of two graveyards there and the nearly complete erasure of the Rogers and Crawley families in Sandy Hook, along with the Hawkins and Williams families in SW Kentucky around Guthrie, the still-living Micah is a problem for them. 
 
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
