@@ -1,9 +1,9 @@
 # TSOTC Currently 
 
 ## Micah 
-* Waiting for the Purple Rain to begin. 
+* Wishing he had looked at the color of the sky before this thunderstorm happened. 
 * Location: Riverdale, GA USA
 
 ## Thomas
-* Waiting for the Purple Rain to begin. 
-* Location: CLASSIFIED 
+* Watching Kelvin waiting on Micah to pop out. 
+* Location: Hopping around. 
