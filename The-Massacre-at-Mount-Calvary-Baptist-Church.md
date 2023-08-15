@@ -1,8 +1,6 @@
-This is the #Mission23 wiki page for the massacre which occurred at Mount Calvary Baptist Church in Lexington, KY.  
+Share this story widely. The more who read it, the safer we all are. 
 
-Until this page is completed, we recommend you visit the existing repo [here](https://github.com/MCBCMF/MCBCMassacre).
-
-Share this widely! The more people who read it, the safer everyone is. There truly is safety and numbers. Shine a spotlight on this!
+Both https://CIAkill.site and https://CIAmassacre.site redirect to this article. 
 
 ***
 
@@ -42,7 +40,7 @@ This screen capture obtained from the Mount Calvary Missionary Baptist Church Fa
 
 Missing in the photo, our piano (on the left) and our organ (on the right, the organ in the choir stand is much smaller and is located in other places in later videos) they have been removed and pews from the back wall of the church put in their place. Also the choir, the choir stands have been wrecked and mostly empty--men randomly hang out there in the videos the charade church is producing now. The altar and lectern are new, the altar sized to fit between the two out of place pews. Mount Calvary Baptist Church would have never advertised its web address on the lectern. 
 
-The massacre continues and is referred to as “Grilling Chicken.” It was given this moniker due to the fact that people are murdered as they arrive or in smaller more manageable groups. 
+The massacre continues and is referred to as “Grilling Chicken.” It was given this moniker due to the fact that people are murdered as they arrive to services at the church. 
 
 In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral date and time. 
 
@@ -70,7 +68,7 @@ The blood spilled on the first day of the massacre was cleaned for the most part
 
 When Micah (born: Kelvin Eugene Williams), a lifelong member of the Mount Calvary Baptist Church, learned of the massacre he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  The correspondence and actions of the CIA before and after the initial letter clearly indicate that they in fact did conduct the massacre.
 
-To write the first letter Micah visited a public library in Riverdale, GA.  While using a public terminal, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator's session of VMWare Horizons (a PCOIP platform).  He left the library at the Creator's instruction as military aircraft were approaching.  The Creator instructed him to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.
+To write the first letter Micah visited a public library in Riverdale, GA.  While using a public terminal, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator's session of VMWare Horizons (a PCOIP platform).  He left the library at the Creator's instruction as military aircraft were approaching.  The Creator instructed him to do, due to the number of lives that could have been lost in the library and the apartment complex behind it.
 
 The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
 
@@ -83,13 +81,15 @@ Micah was also served with an Order of Protection [[Order (PDF)]](https://github
 
 The CIA has learned, from eavesdropping and in-person surveillance of his apartment that their charade is very easy to recognize by anyone who’s ever attended church regularly. In an effort to improve it, they have had their actors studying footage of Mount Calvary Baptist Church.
 
-They also realized they had to do something to counter the actions taken by Micah in his initial letter since Rev. Williams never submitted to the oral swab for DNA testing. After hearing Micah say, “To become a member of Mount Calvary one has to get in their ass in the baptismal, there’s simply no other way.” The CIA cleaned the chemical cremation, installed a seat, and begin baptizing new members. 
+They also realized they had to do something to counter the actions taken by Micah in his initial letter since Rev. Williams never submitted to the requested oral swab for DNA testing to prove his identity. 
+
+After hearing Micah say, “To become a member of Mount Calvary one has to get in their ass in the baptismal, there’s simply no other way.” The CIA removed the chemical cremation from the baptismal, installed a first of its kind seat, and begin baptizing new members. 
 
 [[https://github.com/Mission23/mcbcmf/blob/base/assets/Photos/Baptism.JPG|alt=Baptism]]
 
 Micah lost his mind. 
 
-It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance to the baptismal.” (He’s intentionally withholding the song.)
+It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance (entry/exit on the side) to the baptismal.” (He’s intentionally withholding the name of the song, and refuses to sing it.)
 
 Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.”
 
@@ -103,3 +103,5 @@ The CIA added the “Missionary” because of the missions that Micah has told t
 ## Warning 
 
 The Servants of the Creator recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the church on Facebook as views may be tracked and reported to the CIA. 
+
+If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agree the best thing to do is to deny any relationship with or knowledge of the church to everyone. Once TSOTC announce they have taken control of the property it will be safe to visit. Sadly, the church has more than likely seen its last worship session. Micah will meet with any member and vote on its future, at the present, it will likely have every surface covered so that visitors can’t destroy it (Micah calls this “putting it under glass.”), they will want to come pay their respects. 
