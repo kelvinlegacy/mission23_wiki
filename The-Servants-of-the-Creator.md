@@ -8,4 +8,4 @@ After birth, the two grow up separately and always meet later in life prior to t
 
 Micah (or “the asshole”) is the instigator and Thomas (or “the general”) is the regulator. Neither have ever sat on a cloud, and while Micah plays the piano and Thomas the guitar, neither play a harp. 
 
-The tasks they are given to do have one primary focus: life. Making sure it continues and thrives. 
+The tasks they are given to do have one primary focus: life. Making sure it continues and thrives. Life is always the number one priority of the Creator and His servants. 
