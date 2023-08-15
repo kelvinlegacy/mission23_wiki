@@ -16,10 +16,20 @@ The Creator does not ever intervene in human events. Ever. Once humans decide to
 
 We see escalations all the time. When you’re hammering a nail and it doesn’t go in, you swing the hammer harder, change your grip, and sometimes end up an injuring yourself. 
 
-Another reason He doesn’t is… Where does it stop? He help one situation, He must help them all. When we have perfection everywhere, there’s no reason to live. Utopias sound great on paper, but in practice they bring an end to the Creator’s vision. All conscious entities actually need something to focus on, to fix, so that we want to wake up tomorrow. 
+Another reason He doesn’t is… Where does it stop? He help one situation, He must help them all. When we have perfection everywhere, there’s no reason to live. Utopias sound great on paper, but in practice they bring an end to the Creator’s vision, which is life. All conscious entities actually need something to focus on, to fix, so that we want to continue living. 
 
-From time to time the Creator will “rain” things down. Force things to go in His vision. For example, nuclear war in the 60s—that was really a light misting. But the right people got to the right positions and “cooler heads” prevailed. Without that misting, Earth would be a different place today. 
+From time to time the Creator will “rain” things down. Force things to go the way they need to. For example, nuclear war in the 60s—that wasn’t rain, but a light drizzle.  The right people got into the positions needed and “cooler heads” prevailed. Without that drizzle,  Earth would be a different place today, probably devoid of life. 
 
-This is not a misting or a rain, nor the flood in Noah’s Ark. This is a #GreatStorm. There is a problem plaguing humanity and threatening continued life on the planet. #Mission23 was to address, amongst other things, three of the top four causes of death in humans, but that has been paused to address a rapidly rising cause of death, the CIA and their counterparts around the world. The militaries of the world provide intelligence and checks and balances against aggression typically. These non-government intelligence outfits are killing indiscriminately anyone that their customers (not always governments) pay them to. 
+The #GreatStorm is not drizzle or rain, nor the flood in Noah’s Ark. 
 
-The TSOTC have lost everyone they’ve ever known. Now to cover it up, the CIA is killing anyone who asks about someone missing. Nearly all the victims were erased, no bodies left behind, and some impersonated to steal from their rightful heirs. The TSOTC are not alone, just alive to tell their stories. 
+To understand the Biblical flood, one must understand arks are not boats, they are messages or a lesson (think: the Ark of the Covenant, no boat). The takeaway from Noah’s Ark, that time when He started to rain, only the lower animals were shielded from the rain. 
+
+This is a #GreatStorm. There is a problem plaguing humanity and threatening continued life on the planet. This storm will change life on the planet, historically the Creator and the SOTC enjoy an approval rating above 99%. 
+
+#Mission23 was to address, amongst other things, three of the top four causes of death in humans, but that has been paused to address a rapidly rising cause of death: the CIA and their counterparts around the world. 
+
+The militaries of the world provide intelligence along with the necessary checks and balances to prevent tyrants typically. These non-government, for-profit intelligence outfits are killing indiscriminately anyone that their customers (not always a government) pay them to. 
+
+The SOTC have now lost everyone they’ve ever known and even those who just knew their names. Now to cover it up, the CIA is killing anyone who asks about someone missing. Nearly all the victims were erased, no bodies left behind (chemically cremated). Some deaths were further hidden from family, friends and colleagues through an impersonation program that created a “hotel” from the victim’s life that the CIA would have employees or contractors move into to steal everything they left behind. 
+
+We do not know when we, The Servants of the Creator, will be told to resume our mission but it will be soon. Remember our approval rating and know that He wants us all to “live and let live” and have lots of fun doing it. 
