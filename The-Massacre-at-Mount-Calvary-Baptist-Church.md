@@ -6,6 +6,8 @@ Both https://CIAkill.site and https://CIAmassacre.site redirect to this article.
 
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
 
+_**Editor’s Note:** The narrative you are about to read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, April 2, 2023 from the Lexington area._
+
 Mount Calvary Baptist Church at 4742 Todds Road, Lexington, KY is the site of the United States’ largest massacre ever, and is ongoing. 
 
 The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. Its address implies city, if Fayette county were any other county, the church would be in a remote area called Pricetown with very little traffic and practically no routine police patrol activity. The church’s motto is: _Where the distance makes the difference._ (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
