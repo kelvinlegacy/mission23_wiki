@@ -1,8 +1,22 @@
 _**Editor's Note:**  I've been working for the Creator for over six billion Earth years.  I still do not know a damn thing about Him.  Oh, I know Him, far better than everyone else on the planet except for maybe Thomas.  But I still never know what He is gonna do or say about anything.  He's predictable and not at the exact same time.  I believe this article is best if we do a Q&A with the Creator and make it a FAQ._ 
 ***
-
 He is the Creator (always stylized with a upper-case C) , He is often called "The Creator of the Universe," "The Alpha and the Omega," and "The Great I Am."  His two most popular names at today are, "Allah" and "God."
 
-The Creator cares about life first and foremost.  He detests the loss of life, regardless of the manner of death.  Many religions specify various sins, further many (including clergy) interpret things as sins that he quite simply doesn't mind.  He says, that if you wanted to live right in His eyes, you'd follow the Ten Commandments, and maybe add one more: Have fun.
+A common question of, or thought about the Creator is: "Why did you create the Universe?"  The Creator says, "I had to."  He later adds, "It's more than what you all call a universe."
 
-The Creator says, "Living does not have to be difficult or stressful, do not make it that way."
+One of the first questions of the Creator is, "Is this a sin?"  He says, if you are worried about living right in His eyes, you'd follow the Ten Commandments, and maybe add one more: Thou shalt have fun, often. The Creator cares about life, first and foremost.  He detests the loss of life, regardless of the manner of death.  Many religions specify various sins, further many (including clergy) interpret things as sins that He quite simply doesn't pay attention to. For example, The story of Sodom & Gomorrah, people believe He was upset about homosexual activity.  His stance on homosexuality is this, "Please stop every once and a while, at least for an hour, find a member of the opposite sex and make a baby.  They are essential for your continued human race."
+
+The Creator does not approve or disapprove of any specific religious text.  He does not require church and does not mind if you attend.  He thinks people who go to church often are some of the most peaceful people in the world.
+
+The Creator urges his servants to tell the world why He was that upset.  Life was in peril for one woman, at a time when no one died.  The servants had to find her quickly to help Him see how bad it was, and whether or not this was a human race problem.  That was the last time this planet should have seen a Multiple Sclerosis or any disease for that matter.  The servants were delayed by the town's people who did not understand why they had come looking for only one woman, and no other would suffice.  They did not understand illness or the servants' need to find her quickly, death was only something that happened when humans did something foolish back then (eg. walking off of a cliff, fighting bears).
+
+He says, "Humans wanted to start dying essentially."  Disease, for example, surfaced in humans just after remedies and potions surfaced.  People thought they would work, this caused their brains to stop responding to infectious agents.  All disease, save a couple that are mislabeled diseases (like Diabetes type I) are infectious in nature.  The Creator says, "Before you think hereditary, think environmental."
+
+Cancer is new.  Cancer is not caused by anything, they CAN be sped up beyond the body's ability to handle them (built into every cell in the body, by design).  The Creator reminds us of an old song, that can help us all around. The lifestyles humans live are full stress which cause all kinds of issues in the body.  The Creator says, "Slow down.  Living does not have to be difficult or stressful.  Do not make it that way for yourself or anyone else."
+
+We also need to slow down in other ways also.  The Creator says to human beings, "You cannot kill yourself under your own power."  If you run as fast as you can into a rock wall, you might get some scrapes and bruises, but you will not kill yourself, by design.  If you put a pair roller skates under you, and hit the same wall, your chances of dying have increased.  
+
+When asked what the Creator thought of cars, He said, "Nope."
+
+## FAQs of the Creator
+From time to time, when time permits, the Servants of the Creator will take questions from the Discussions area (or other online forum as announced) and present them to the Creator and post His responses here.
