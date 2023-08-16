@@ -95,7 +95,10 @@ The letter was completed the following day at Atlanta's Central Library while Mi
 * Micah responds to Attorney Yavon L. Griffin. 
     - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
 
-Micah was also served with an Order of Protection [[Order (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
+* Micah was served with an Order of Protection.
+    - [[Order (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf)
+
+Micah was served an [Order of Protection](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
 
 The CIA has learned, from eavesdropping and in-person surveillance of his apartment that their charade is very easy to recognize by anyone who’s ever attended church regularly. In an effort to improve it, they have had their actors studying footage of Mount Calvary Baptist Church.
 
