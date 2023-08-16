@@ -93,7 +93,7 @@ After hearing Micah say, “To become a member of Mount Calvary one has to get i
 
 [[https://github.com/Mission23/mcbcmf/blob/base/assets/Photos/Baptism.JPG|alt=Baptism]]
 
-Micah lost his mind. 
+Upon seeing this photograph on their Facebook page, Micah almost lost his mind. 
 
 It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance (entry/exit on the side) to the baptismal.” (He’s intentionally withholding the name of the song, and refuses to sing it.)
 
