@@ -1,6 +1,8 @@
 The CIA hates the messages some music sends. After a guided tour listening to Prince and Vandaveer, any artist or group that Micah selected and played practically became a target. 
 
-This list is being made after hearing in a custom-made song that Ida Corr was murdered. This comes just a couple months after learning of Tina Turner’s death, she died suddenly (without the public hearing of an illness or fear of death) but the news of her death came exactly one day after “Proud Mary” was played in Micah’s apartment and he used her intro to explain how “We never do anything ‘nice and easy’.”
+![IMG_0104](https://github.com/Mission23/Mission23/assets/140252803/f73b366c-afdb-4180-8656-39969a1b4d8a)
+
+This list is being made after hearing in a custom-made song (lyrics above) that Ida Corr was murdered. This comes just a couple months after learning of Tina Turner’s death, she died suddenly (without the public hearing of an illness or fear of death) but the news of her death came exactly one day after “Proud Mary” was played in Micah’s apartment and he used her intro to explain how “We never do anything ‘nice and easy’.”
 
 Regardless of how much Micah let everyone know it wasn’t an official creation by the Creator, Turner’s death was announced. 
 
