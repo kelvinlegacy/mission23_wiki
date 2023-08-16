@@ -1,5 +1,3 @@
-This is an entry that is being written about Hotels, a CIA routine that takes everything left behind by one of its murder victims. 
-***
 The CIA has a routine that constructs “hotels” for some of its murder victims after their death. 
 
 Given that an overwhelming majority of the CIAs victims’ bodies are disposed of in a manner that leaves them legally “missing” until declared dead by their loved ones, the hotels provide a second revenue stream until the legal proceedings declare a victim dead.  In many cases, with entire families or households murdered, the declaration is never made and the CIA can keep the hotel operating until it’s ready to vacate it. 
