@@ -78,10 +78,22 @@ To write the first letter Micah visited a public library in Riverdale, GA.  Whil
 
 The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
 
-* Micah writes to Rev. Dr. Felix G. Williams, III expressing concern for the church and taking action, as a member, to protect the church and stop any further bloodshed. [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-LetterToMCBC.pdf)
-* "Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. responds to Micah, denying the allegations and is extremely out-of-character to Micah. [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-ResponseToKEW.pdf). Micah often apologizes when reading the response, he says “The _word soup_ at the beginning of the response should have come with air sickness bags.” He urges readers to pay attention to the choir stand in the church’s letterhead. It shows a visiting choir (since the regular choir is always on the left during services), an open baptismal (normal, it was never covered), and the top of the original organ it it’s original place can be seen. The logo must have been Mount Calvary’s logo just before the massacre.
-* Attorney Yavon L. Griffin sends a Cease & Desist to Micah. [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230526-CeaseAndDesist.pdf)
-* Micah responds to Attorney Yavon L. Griffin. [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
+* Micah writes to Rev. Dr. Felix G. Williams, III 
+    - Expressed concern for the church.
+    - Took action as member, objecting to property transfers.
+    - Removed pastor, associate pastors and deacons until DNA test.
+    - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-LetterToMCBC.pdf)
+
+* "Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. responds to Micah.
+    - _"Word Soup"_ at the beginning of letter doesn't sound like anything ever said at the church.
+    - Letterhead shows: a visiting choir in the choir stand, an open baptismal, and the top of the original organ it its original place.
+    - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-ResponseToKEW.pdf)
+    
+* Attorney Yavon L. Griffin sends a Cease & Desist to Micah. 
+    - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230526-CeaseAndDesist.pdf)
+
+* Micah responds to Attorney Yavon L. Griffin. 
+    - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
 
 Micah was also served with an Order of Protection [[Order (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
 
