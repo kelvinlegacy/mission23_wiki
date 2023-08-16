@@ -4,7 +4,7 @@ This list is being made after hearing in a custom-made song that Ida Corr was mu
 
 Regardless of how much Micah let everyone know it wasn’t an official creation by the Creator, Turner’s death was announced. 
 
-## Musical Artists Feared Harmed
+## Musical Artists Confirmed Killed
 * DJ Paulo (murdered, hotel)
 * Madonna (murdered, hotel)
 * Ida Corr (murdered)
