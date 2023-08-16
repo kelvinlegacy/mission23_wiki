@@ -1,9 +1,4 @@
-# TSOTC Currently 
+# The SOTC Currently
+Awaiting the quaking under our feet. Listen to “Nature of Our Kind” by Vandaveer. 
 
-## Micah 
-* Wishing he had looked at the color of the sky before this thunderstorm happened. 
-* Location: Riverdale, GA USA
-
-## Thomas
-* Watching Kelvin waiting on Micah to pop out. 
-* Location: Hopping around. 
+That happened to Micah in 2023, but the album was released in 2011. 
