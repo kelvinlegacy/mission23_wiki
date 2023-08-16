@@ -100,7 +100,13 @@ The letter was completed the following day at Atlanta's Central Library while Mi
 
 Micah was served an [Order of Protection](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
 
+## The Charade Continues 
+
 The CIA has learned, from eavesdropping and in-person surveillance of his apartment that their charade is very easy to recognize by anyone who’s ever attended church regularly. In an effort to improve it, they have had their actors studying footage of Mount Calvary Baptist Church.
+
+![IMG_0122](https://github.com/Mission23/Mission23/assets/140252803/edf1b789-6ba3-405a-b1c6-aa15dfd3b7eb)
+
+The church has began using the choir stands and purchased a piano, but has no pianist. There are a lot of videos from 2017-2019 that were not on the Facebook page a couple of weeks ago. However, the videos still show the large signs in the choir stands with Mount abbreviated “Mt” and the choir is sitting on folding chairs. 
 
 They also realized they had to do something to counter the actions taken by Micah in his initial letter since Rev. Williams never submitted to the requested oral swab for DNA testing to prove his identity. 
 
