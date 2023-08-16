@@ -26,8 +26,24 @@ This earthquake’s epicentre will be in Kanawha county (Hughes Creek), WV. It w
 
 This minor quake will also recognise the lives lost in Kanawha county, mostly TomTom’s friends and family, throughout the larger tragedy. 
 
-# Aftermath
+# Now What?
 The Creator hopes this will be all He has to do to stop the ongoing massacre and end the greater tragedy. 
+
+# Earth’s Movements 
+Did you feel the Earth move under your feet? Did it seem like you were floating on a river at any point? 
+
+FACT: The planet we walk around on is NOT a rock and does NOT have a solid iron core. It is a ball of gas. 
+
+Believe it or not, our crust is floating on top of methane. Earth is about the same size as Jupiter and both are larger than you think. 
+
+Every planet in the universe is a ball of methane, and some planets never form a crust.
+
+Do you know where our crust came from? Here’s a hint, it took over a billion years for the thinnest crust to form. Earth is actually about 12-14 billion years old according to the Creator. 
+
+# Music
+The Creator says that Earth is the only planet in the universe that has music. So He likes to use it!
+
+Listen. 
 
 The tragedy is all a [“Sign of the Times.”](https://youtube.com/watch?v=8EdxM72EZ94&feature=sharea).
 , 
