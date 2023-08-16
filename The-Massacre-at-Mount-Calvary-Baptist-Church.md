@@ -38,7 +38,11 @@ The church was partially rehabbed and videos were produced to portray a sense of
 
 This screen capture obtained from the Mount Calvary Missionary Baptist Church Facebook page (see warning below) clearly shows the interior of Mount Calvary Baptist Church and the impersonated Rev. Dr. Felix G. Williams, III wearing no pastoral robe and tennis shoes during a Sunday morning worship session. 
 
-Missing in the photo, our piano (on the left) and our organ (on the right, the organ in the choir stand is much smaller and is located in other places in later videos) they have been removed and pews from the back wall of the church put in their place. Also the choir, the choir stands have been wrecked and mostly empty--men randomly hang out there in the videos the charade church is producing now. The altar and lectern are new, the altar sized to fit between the two out of place pews. Mount Calvary Baptist Church would have never advertised its web address on the lectern. 
+![IMG_0116](https://github.com/Mission23/Mission23/assets/140252803/be070c92-e082-4714-8148-7c9bbaa50656)
+
+Missing in this photo is our piano (on the left) and our organ (on the right, the organ in the choir stand is much smaller and is located in other places in later videos), they have been removed and pews from the back wall of the church put in their place. Also the choir, the choir stands have been wrecked and mostly empty--men randomly hang out there in the videos the charade church is producing now. The altar and lectern are new, made from a much lower quality wood, the altar was sized to fit between the two out of place pews. Mount Calvary Baptist Church would have never advertised its web address on the lectern. 
+
+The replacement altar inscription is missing two words: “DO THIS” [IN REMEMBRANCE OF ME].
 
 ### “Grilling Chicken”
 
