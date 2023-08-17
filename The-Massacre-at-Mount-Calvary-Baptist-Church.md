@@ -4,7 +4,7 @@ _“A massacre is the killing of a large number of people, especially those who 
 
 Mount Calvary Baptist Church at 4742 Todds Road, Lexington, KY is the site of the United States’ largest massacre ever, and is ongoing. 
 
-The city of Lexington[[1]] spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. Its address implies city, if Fayette county were any other county, the church would be in a remote area called Pricetown with very little traffic and practically no routine police patrol activity. The church’s motto is: _Where the distance makes the difference._ (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
+The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. Its address implies city, if Fayette county were any other county, the church would be in a remote area called Pricetown with very little traffic and practically no routine police patrol activity. The church’s motto is: _Where the distance makes the difference._ (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
 
 Please note:  The City of Lexington and Lexington-Fayette Urban County Government should not be blamed or called lambasted.  They did not know about the massacre, their PSAP (Public Safety Answering Point / 911 Call Center) never received a call, all calls were diverted using temporary cell towers.  When Micah wrote his letter to the church, he copied law enforcement and the media.  The CIA wasted no time and were faster than e-mail, they told recipients that he was crazy and suffering from delusions, etc to make the letter really seem like the product of someone having a paranoid fantasy.  Please don't call them. 
 
@@ -20,7 +20,7 @@ A projection was then displayed on every stained glass window of the sanctuary. 
 
 The already startled congregation then heard a female’s voice, instructing everyone to remain seated and that this was a law enforcement action.  A loud noise caused most of the congregation to jump and turn towards the back of the church towards the vestibule where they then seen the invading force of the CIA. 
 
-Many of the congregants attempted to call 911 from their mobile phones and their calls were answered, but not by Lexington-Fayette Urban County Government[[1]]. The CIA utilized mobile cellular equipment, commonly called a COW (Cell On Wheels), which redirected calls to 911 to call takers’ mobile phones. Callers provided address information, a description of the activity inside and call back numbers and were told emergency services were en-route and hung up on. 
+Many of the congregants attempted to call 911 from their mobile phones and their calls were answered, but not by Lexington-Fayette Urban County Government. The CIA utilized mobile cellular equipment, commonly called a COW (Cell On Wheels), which redirected calls to 911 to call takers’ mobile phones. Callers provided address information, a description of the activity inside and call back numbers and were told emergency services were en-route and hung up on. 
 
 Members of the congregation were pulled to the front of the church, in a two by two manner, and beheaded using chainsaws at the piano and organ’s benches. 
 
@@ -121,6 +121,9 @@ Upon seeing this photograph on their Facebook page, Micah almost lost his mind.
 It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance (entry/exit on the side) to the baptismal.” (He’s intentionally withholding the name of the song, and refuses to sing it.)
 
 Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.”
+
+## Other CIA Churches
+![IMG_0120](https://github.com/Mission23/Mission23/assets/140252803/25a652c1-87b0-45c9-b19c-cb806f07e4f4)
 
 ## Motive
 Micah does not believe and the Creator has confirmed, it was not racially motivated. 
