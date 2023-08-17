@@ -1,10 +1,12 @@
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
-
+ 
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
 
 Mount Calvary Baptist Church at 4742 Todds Road, Lexington, KY is the site of the United States’ largest massacre ever, and is ongoing. 
 
-The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. Its address implies city, if Fayette county were any other county, the church would be in a remote area called Pricetown with very little traffic and practically no routine police patrol activity. The church’s motto is: _Where the distance makes the difference._ (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
+The city of Lexington[[1]] spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. Its address implies city, if Fayette county were any other county, the church would be in a remote area called Pricetown with very little traffic and practically no routine police patrol activity. The church’s motto is: _Where the distance makes the difference._ (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
+
+Please note:  The City of Lexington and Lexington-Fayette Urban County Government should not be blamed or called lambasted.  They did not know about the massacre, their PSAP (Public Safety Answering Point / 911 Call Center) never received a call, all calls were diverted using temporary cell towers.  When Micah wrote his letter to the church, he copied law enforcement and the media.  The CIA wasted no time and were faster than e-mail, they told recipients that he was crazy and suffering from delusions, etc to make the letter really seem like the product of someone having a paranoid fantasy.  Please don't call them. 
 
 ![IMG_0065](https://github.com/Mission23/Mission23/assets/140252803/b157497c-8599-4f96-a21e-f31a97de71c6)
 
@@ -18,7 +20,7 @@ A projection was then displayed on every stained glass window of the sanctuary. 
 
 The already startled congregation then heard a female’s voice, instructing everyone to remain seated and that this was a law enforcement action.  A loud noise caused most of the congregation to jump and turn towards the back of the church towards the vestibule where they then seen the invading force of the CIA. 
 
-Many of the congregants attempted to call 911 from their mobile phones and their calls were answered, but not by Lexington-Fayette Urban County Government. The CIA utilized mobile cellular equipment, commonly called a COW (Cell On Wheels), which redirected calls to 911 to call takers’ mobile phones. Callers provided address information, a description of the activity inside and call back numbers and were told emergency services were en-route and hung up on. 
+Many of the congregants attempted to call 911 from their mobile phones and their calls were answered, but not by Lexington-Fayette Urban County Government[[1]]. The CIA utilized mobile cellular equipment, commonly called a COW (Cell On Wheels), which redirected calls to 911 to call takers’ mobile phones. Callers provided address information, a description of the activity inside and call back numbers and were told emergency services were en-route and hung up on. 
 
 Members of the congregation were pulled to the front of the church, in a two by two manner, and beheaded using chainsaws at the piano and organ’s benches. 
 
@@ -132,8 +134,8 @@ Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount 
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
 ## Warning 
-The Servants of the Creator recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the church on Facebook as views may be tracked and reported to the CIA. 
-
+The Servants of the Creator recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the  church on Facebook as views may be tracked and reported to the CIA. 
+ 
 If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agrees the best thing to do is to deny any relationship with, or knowledge of the church to anyone that asks. 
 
 Once the SOTC announce they have taken control of the property it will be safe to visit. Sadly, the church has more than likely seen its last worship session.
