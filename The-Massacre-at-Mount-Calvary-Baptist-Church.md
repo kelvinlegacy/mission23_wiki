@@ -139,5 +139,9 @@ The Servants of the Creator recommend that no one visit the church or church pro
 If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agrees the best thing to do is to deny any relationship with, or knowledge of the church to anyone that asks. 
 
 Once the SOTC announce they have taken control of the property it will be safe to visit. Sadly, the church has more than likely seen its last worship session.
+
+## Article To Do
+* Diagram / Floorplan of Mount Calvary Baptist Church
+
 ***
 _**Editor’s Note:** The narrative you are about to read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, April 2, 2023 from the Lexington area._
