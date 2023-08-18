@@ -122,8 +122,14 @@ It took him a while to realize how they could get it so wrong and then he figure
 
 Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.”
 
-## Other CIA Churches
+## Continuing the Massacre
 ![IMG_0120](https://github.com/Mission23/Mission23/assets/140252803/25a652c1-87b0-45c9-b19c-cb806f07e4f4)
+
+It is believed that the CIA in an effort to eliminate any remaining associates of Mount Calvary Baptist Church or the Rev. Dr. Felix G. Williams, III is going to use Rev. Williams' 40th Pastoral Anniversary to attract those who have not yet been identified.
+
+The charade church is circulating this flyer, which was obtained from the charade's Facebook page but we have learned is also being circulated via e-mail to area churches.  The flyer is not a product of Mount Calvary Baptist Church, this is clearly evidenced by the address shown on the flyer.
+
+The address for the church shown at the top of this article is 4742 Todds Road.  The CIA has used 4743 Todds Road, which is reported by Apple and Google Maps as the Mount Calvary Baptist Church Cemetery across the street.  Additionally, the flyer shows "Todd's" (note the apostrophe) Road, a common auto correction but something true members of Mount Calvary Baptist Church never mistake. 
 
 ## Motive
 Micah does not believe and the Creator has confirmed, it was not racially motivated. 
