@@ -12,7 +12,7 @@ Please note:  The City of Lexington and Lexington-Fayette Urban County Governmen
 
 ## The Initial Massacre 
 
-The massacre started on April 2, 2023 when the CIA stormed the church near the end of the morning worship session. 
+The massacre started on March 19, 2023 when the CIA stormed the church near the end of the morning worship session. 
 
 CIA personnel quietly blocked the two back exits located in the men and women’s rest areas, then approximately fifty men and a handful of women gathered in the vestibule undetected by the congregation. 
 
@@ -142,7 +142,7 @@ When looking into the 40th Anniversary Micah asked the Creator, "Have you **ever
 The Creator responded: No.  
 
 ## Motive
-Micah does not believe and the Creator has confirmed, it was not racially motivated. 
+Micah does not believe, and the Creator has confirmed, it was not racially motivated. 
 
 The massacre at Mount Calvary was continuing a cover up of the CIA’s misdeeds in Sandy Hook, TN.  
 
@@ -163,4 +163,4 @@ Once the SOTC announce they have taken control of the property it will be safe t
 * Diagram / Floorplan of Mount Calvary Baptist Church
 
 ***
-_**Editor’s Note:** The narrative you are about to read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, April 2, 2023 from the Lexington area._
+_**Editor’s Note:** The narrative you are about to read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, March 19, 2023 from the Lexington area._
