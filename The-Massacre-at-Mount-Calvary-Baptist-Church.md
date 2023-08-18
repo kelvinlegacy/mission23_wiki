@@ -131,6 +131,16 @@ The charade church is circulating this flyer, which was obtained from the charad
 
 The address for the church shown at the top of this article is 4742 Todds Road.  The CIA which has no respect for the significance of Mount Calvary to Christians routinely abbreviates the "Mount" in Mount Calvary.  It also uses 4743 Todds Road for Mount Calvary, which is reported by Apple and Google Maps as the Mount Calvary Baptist Church Cemetery across the street.  Additionally, the flyer shows "Todd's" (note the apostrophe) Road, a common auto correction but something true members of Mount Calvary Baptist Church never mistake. 
 
+### Emmanuel Baptist Church
+
+The Creator hears every prayer.  Regardless of the name the person praying is praying to, because all prayer lines go straight to the Creator.  The Creator does not share your prayers with His servants unless you specifically pray for Him to do so, or He knows it was your actual intent to get one of us a message.
+
+The Creator will provide to His servants information necessary to do their tasks for Him, including what Micah calls "aggregate prayer information."
+
+When looking into the 40th Anniversary Micah asked the Creator, "Have you **ever** received a legitimate prayer from the pastor or a member of Emmanuel Baptist Church which has a reported address of 3815 West Broadway in Louisville, KY?"
+
+The Creator responded: No.  
+
 ## Motive
 Micah does not believe and the Creator has confirmed, it was not racially motivated. 
 
