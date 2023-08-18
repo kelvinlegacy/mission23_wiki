@@ -88,7 +88,7 @@ The letter was completed the following day at Atlanta's Central Library while Mi
 
 * "Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. responds to Micah.
     - _"Word Soup"_ at the beginning of letter doesn't sound like anything ever said at the church.
-    - Letterhead shows: a visiting choir in the choir stand, an open baptismal, and the top of the original organ it its original place.
+    - Letterhead shows: a visiting choir in the choir stand, an open baptismal, and the top of the original organ it its original place. [[Logo (PNG Image)]](https://github.com/Mission23/Mission23/blob/master/assets/Letterhead.png)
     - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-ResponseToKEW.pdf)
     
 * Attorney Yavon L. Griffin sends a Cease & Desist to Micah. 
