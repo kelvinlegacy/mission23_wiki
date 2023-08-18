@@ -125,11 +125,11 @@ Micah adds about the baptisms of late, “The family pictured on Facebook looks 
 ## Continuing the Massacre
 ![IMG_0120](https://github.com/Mission23/Mission23/assets/140252803/25a652c1-87b0-45c9-b19c-cb806f07e4f4)
 
-It is believed that the CIA in an effort to eliminate any remaining associates of Mount Calvary Baptist Church or the Rev. Dr. Felix G. Williams, III is going to use Rev. Williams' 40th Pastoral Anniversary to attract those who have not yet been identified.
+The CIA is planning an effort to eliminate any remaining associates of Mount Calvary Baptist Church or the Rev. Dr. Felix G. Williams, III and is using Rev. Williams' 40th Pastoral Anniversary to attract those who have not yet been identified.
 
 The charade church is circulating this flyer, which was obtained from the charade's Facebook page but we have learned is also being circulated via e-mail to area churches.  The flyer is not a product of Mount Calvary Baptist Church, this is clearly evidenced by the address shown on the flyer.
 
-The address for the church shown at the top of this article is 4742 Todds Road.  The CIA has used 4743 Todds Road, which is reported by Apple and Google Maps as the Mount Calvary Baptist Church Cemetery across the street.  Additionally, the flyer shows "Todd's" (note the apostrophe) Road, a common auto correction but something true members of Mount Calvary Baptist Church never mistake. 
+The address for the church shown at the top of this article is 4742 Todds Road.  The CIA which has no respect for the significance of Mount Calvary to Christians routinely abbreviates the "Mount" in Mount Calvary.  It also uses 4743 Todds Road for Mount Calvary, which is reported by Apple and Google Maps as the Mount Calvary Baptist Church Cemetery across the street.  Additionally, the flyer shows "Todd's" (note the apostrophe) Road, a common auto correction but something true members of Mount Calvary Baptist Church never mistake. 
 
 ## Motive
 Micah does not believe and the Creator has confirmed, it was not racially motivated. 
@@ -138,7 +138,7 @@ The massacre at Mount Calvary was continuing a cover up of the CIA’s misdeeds 
 
 In order to never have those misdeeds known, the CIA has to completely erase Micah’s family and anyone who may know them. 
 
-Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount Calvary Baptist Church and very active there. For a long time she was on the usher board and read the church announcements, putting her in front of thousands of worshippers over the years both from Mount Calvary and visiting congregations. 
+Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount Calvary Baptist Church and very active there. For a long time she was on the usher board and read the church announcements, putting her in front of thousands of worshipers over the years both from Mount Calvary and visiting congregations. 
 
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
