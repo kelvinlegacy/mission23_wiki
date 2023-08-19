@@ -21,3 +21,27 @@ The tasks they are given to do have one primary focus: life. Making sure it cont
 
 ## The Trench Workers 
 Micah has described the Servants of the Creator as “trench workers” getting the gifts from the Creator to the people on Earth. He describes the Creator as the bobcat operator who pulls them out in the event of a collapse, but never giving them any time off and putting them right back into the trench. 
+
+### Micah 
+Micah was born Kelvin Eugene Williams on March 23, 1977.
+
+#### Micah's Employers
+* McDonald's - 100 Imperial Hwy, Nicholasville, KY 40356-2502
+* Burger King - N. Main Street (location closed), Nicholasville, KY 40356
+* K-Mart #9559 - S. Main Street (store closed), Nicholasville, KY 40356
+* McLane Cumberland - 1040 Baker Lane, Nicholasville, KY 40356
+* Christian Nursing Home (exact name forthcoming) Man O' War Blvd, Lexington, KY
+* Royal Manor Nursing Home, Nicholasville, KY
+* Anthem Blue Cross & Blue Shield, Aegon Center, Louisville, KY
+* International Ink Company, Gainesville, GA
+* Clarksville CARES (Volunteer)
+* Nashville CARES (Volunteer)
+* New Horizons Computer Learning Centers, Metrocenter Location, Nashville, TN
+* GCI/Trinagin, Chattanooga, TN
+* Trinity Communications, South Pittsburg, TN
+* GeniusNetworks / Altus Companies, Chattanooga, TN
+* Southern Coastal Cable, Georgetown, SC
+
+
+#### Micah's Contacts.
+Micah has dumped his iPhone contacts.  No one answers the phone or texts anymore.  You can review his contacts [here](https://github.com/Mission23/Mission23/blob/master/assets/micah_iphone/wiki-dump.txt.csv).  This is not an exhaustive list, Micah's Google account which the CIA now has had over 5,000 total contacts.
