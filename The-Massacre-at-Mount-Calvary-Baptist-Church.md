@@ -1,3 +1,5 @@
+**WARNING:  Before you call the church, you need to read this entire entry.  Your life depends on it.  Any visitor to the church is in harm's way.  They must kill everyone--they think.**
+
 ```
 This a developing article and covers an ongoing event.  
 The SotC recommend reloading before reading.
@@ -65,13 +67,9 @@ The grill doesn’t look like it was used at all.
 
 ![IMG_0076](https://github.com/Mission23/Mission23/assets/140252803/b369d640-cbd2-44cf-9171-2dc72859598d)
 
-These images were taken outside of a “Company” (what the CIA often refers to itself as to hide its true identity) office in Riverdale, GA, near where Micah lives (by forced circumstance). He’s had numerous attempts on his life as he’s walked by this location along Hwy 85. 
+These images were taken outside of a “Company” (what the CIA often refers to itself as to hide its true identity) office in Riverdale, GA, near where Micah lives (by forced circumstance). He’s had numerous attempts on his life as he’s walked by this location along Hwy 85. He suspected and the Creator confirmed it was an announcement seeking workers for the August 13th grilling at Mount Calvary. Micah suspects the grill being left out means they are planning another. 
 
-He suspected and the Creator confirmed it was an announcement seeking workers for the August 13th grilling at Mount Calvary. Micah suspects the grill being left out means they are planning another. 
-
-Micah believes they’ve found a new church based on the sender of the $5 rent payment (an insult) his “roommate” (who is really a minder) just sent him. 
-
-He believes the owner of the CashApp account is Duke Stone of Hickory Valley Christian Church in Chattanooga, TN. Duke has not returned calls any of Micah’s calls and he always does. 
+Micah believes they’ve found a new church based on the sender of the $5 rent payment (an insult) his “roommate” (who is really a minder) just sent him. He believes the owner of the CashApp account is actually Duke Stone of Hickory Valley Christian Church in Chattanooga, TN. Duke has not returned calls any of Micah’s calls and he always does. 
 
 The Creator never advises His servants about the future or anyone’s thoughts or prayers, unless they have desired theirs to be shared or forwarded to the servants. 
 
@@ -136,6 +134,8 @@ The charade church is circulating this flyer, which was obtained from the charad
 
 The address for the church shown at the top of this article is 4742 Todds Road.  The CIA which has no respect for the significance of Mount Calvary to Christians routinely abbreviates the "Mount" in Mount Calvary.  It also uses 4743 Todds Road for Mount Calvary, which is reported by Apple and Google Maps as the Mount Calvary Baptist Church Cemetery across the street.  Additionally, the flyer shows "Todd's" (note the apostrophe) Road, a common auto correction but something true members of Mount Calvary Baptist Church never mistake. 
 
+Anyone 
+
 ### Emmanuel Baptist Church
 
 The Creator hears every prayer.  Regardless of the name the person praying is praying to, because all prayer lines go straight to the Creator.  The Creator does not share your prayers with His servants unless you specifically pray for Him to do so, or He knows it was your actual intent to get one of us a message.
@@ -160,9 +160,9 @@ The CIA added the “Missionary” because of the missions that Micah has told t
 ## Warning 
 The Servants of the Creator recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the  church on Facebook as views may be tracked and reported to the CIA. 
  
-If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agrees the best thing to do is to deny any relationship with, or knowledge of the church to anyone that asks. 
+If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agrees the best thing to do is to deny any relationship with, or knowledge of the church to anyone that asks. Micah says, "If you know the church, you know who's parked where, you know you can see that from afar.  YOU KNOW, he's always there early.  DO NOT GO ONTO CHURCH PROPERTY IF YOU DO NOT SEE HIM PARKED IN HIS SPOT.  Don't accept a new car, don't fall for it (they do read this too), I'll post here when he has given me the DNA test (it's oh so simple--my mom did it long ago!) that I asked of him to prove his identity.  It ain't Felix."
 
-Once the SOTC announce they have taken control of the property it will be safe to visit. Sadly, the church has more than likely seen its last worship session.
+Once the SotC announce they have taken control of the property it will be safe to visit. Sadly, the church has more than likely seen its last worship session.
 
 ## Article To Do
 * Diagram / Floorplan of Mount Calvary Baptist Church
