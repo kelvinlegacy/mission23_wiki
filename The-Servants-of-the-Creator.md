@@ -40,8 +40,10 @@ Micah was born Kelvin Eugene Williams on March 23, 1977.
 * GCI/Trinagin, Chattanooga, TN
 * Trinity Communications, South Pittsburg, TN
 * GeniusNetworks / Altus Companies, Chattanooga, TN
-* Southern Coastal Cable, Georgetown, SC
-
+     - Southern Coastal Cable, Georgetown, SC
+     - Penobscot Property Management, Teaneck, NJ (NYC Metro)
+* textPlus, Marina del Rey, CA
+* 373K
 
 #### Micah's Contacts.
 Micah has dumped his iPhone contacts.  No one answers the phone or texts anymore.  You can review his contacts [here](https://github.com/Mission23/Mission23/blob/master/assets/micah_iphone/wiki-dump.txt.csv).  This is not an exhaustive list, Micah's Google account which the CIA now has had over 5,000 total contacts.
