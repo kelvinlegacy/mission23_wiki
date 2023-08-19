@@ -43,7 +43,8 @@ Anyone who claiming to be a person photographed in the 1993 JCHS yearbook should
 * What Home Economics class had the ovens (when you were in high school)?
 * Where were all of the athlete's lockers (or just the "Jocks" when you were in high school)?
 * Were you permitted to smoke cigarettes when you were on school grounds, if so, where?
-* Name all the things wrong with this Kick Booty ride? [[Image]]
+* Name all the things wrong with this [Kick Booty ride](https://github.com/Mission23/Mission23/assets/140252803/b4a3017e-08dd-496f-96e7-919eae1b6f05)?
+
 ```
 
 
