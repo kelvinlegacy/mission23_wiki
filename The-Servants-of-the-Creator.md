@@ -19,7 +19,7 @@ Micah says that he is the lowest ranking human being on the planet, and that Tho
 
 The tasks they are given to do have one primary focus: life. Making sure it continues and thrives. Life is always the number one priority of the Creator and His servants. 
 
-Earthling (n): A creature in the Earth neighborhood of the creation, that “makes mountains out of mole hills” and trusts all the wrong things, letting them (eg. the media) do all of their thinking. Ending up, “loving the ones they need to hate, and hating the ones they need to love.” (Partial) Quotes of Patricia Williams and Malcom X. 
+Earthling (n): A creature in the Earth neighborhood of the creation, that “makes mountains out of mole hills” and trusts all the wrong things, letting them (eg. the media) do all of their thinking. Ending up, “loving the ones they need to hate, and hating the ones they need to love.” (Quotes of Patricia Williams and Malcom X)
 
 ## The Trench Workers 
 Micah has described the Servants of the Creator as “trench workers” getting the gifts from the Creator to the people on Earth. He describes the Creator as the bobcat operator who pulls them out in the event of a collapse, but never giving them any time off and putting them right back into the trench. 
