@@ -22,7 +22,7 @@ The tasks they are given to do have one primary focus: life. Making sure it cont
 ## The Trench Workers 
 Micah has described the Servants of the Creator as “trench workers” getting the gifts from the Creator to the people on Earth. He describes the Creator as the bobcat operator who pulls them out in the event of a collapse, but never giving them any time off and putting them right back into the trench. 
 
-### Micah 
+## Micah 
 Micah was born Kelvin Eugene Williams on March 23, 1977 in Clarksville, TN but central Kentucky, specifically Jessamine County, is home.  He lived in Clarksville, TN as an infant, moved to Lexington with his newly single mother at the age of 1.  After the birth of his sister, Katrina Duvall (on January 6, 1983), the family moved to a house purchased by his mother.  Micah attended Jessamine County High School, but dropped out two months before the graduation of his class--the last to graduate a single high school.  His younger sister attended "East Jessamine County High school" as you can barely see written on her chin (you may need to zoom in), in the [last photo](https://github.com/Mission23/Mission23/blob/master/assets/karrington_katrina.jpg) of her received by Micah from the CIA.
 
 ### Education
@@ -70,3 +70,7 @@ Anyone who claiming to be a person photographed in the 1993 JCHS yearbook should
 
 #### Micah's Contacts.
 Micah has dumped his iPhone contacts.  No one answers the phone or texts anymore.  You can review his contacts [here](https://github.com/Mission23/Mission23/blob/master/assets/micah_iphone/wiki-dump.txt.csv).  This is not an exhaustive list, Micah's Google account which the CIA now has had over 5,000 total contacts.   
+
+## Thomas (better known as TomTom)
+TomTom was born Thomas Allen Chadwell on September 23, 1978.
+(And TomTom has to finish his own stuff.)
