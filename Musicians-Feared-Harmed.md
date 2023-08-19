@@ -26,5 +26,7 @@ Regardless of how much Micah let everyone know it wasn’t an official creation 
 * Mase 
 * Weather Girls (Martha Washington and Izora Armstead)
 * Erykah Badu 
+* John Michael Montgomery
+* Inaya Day
 
 Several others have been mentioned on the @kelvinatlanta Twitter feed with #SavingInnocentLives #SavingArtistsLives 
