@@ -23,7 +23,7 @@ The tasks they are given to do have one primary focus: life. Making sure it cont
 Micah has described the Servants of the Creator as “trench workers” getting the gifts from the Creator to the people on Earth. He describes the Creator as the bobcat operator who pulls them out in the event of a collapse, but never giving them any time off and putting them right back into the trench. 
 
 ### Micah 
-Micah was born Kelvin Eugene Williams on March 23, 1977.
+Micah was born Kelvin Eugene Williams on March 23, 1977 in Clarksville, TN but central Kentucky, specifically Jessamine County, is home.  He was merely born in TN.
 
 #### Micah's Employers
 * McDonald's - 100 Imperial Hwy, Nicholasville, KY 40356-2502
@@ -34,6 +34,7 @@ Micah was born Kelvin Eugene Williams on March 23, 1977.
 * Royal Manor Nursing Home, Nicholasville, KY
 * Anthem Blue Cross & Blue Shield, Aegon Center, Louisville, KY
 * International Ink Company, Gainesville, GA
+* FCI Ashland, Ashland, KY
 * Clarksville CARES (Volunteer)
 * Nashville CARES (Volunteer)
 * New Horizons Computer Learning Centers, Metrocenter Location, Nashville, TN
