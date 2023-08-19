@@ -23,6 +23,8 @@ The massacre started on March 19, 2023 when the CIA stormed the church near the 
 
 CIA personnel quietly blocked the two back exits located in the men and women’s rest areas, then approximately fifty men and a handful of women gathered in the vestibule undetected by the congregation. 
 
+![Floorplan of Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/blob/master/assets/floorplan.png)
+
 A projection was then displayed on every stained glass window of the sanctuary. The projection made it appear as though dozens of men were standing outside of each window blocking it. 
 
 The already startled congregation then heard a female’s voice, instructing everyone to remain seated and that this was a law enforcement action.  A loud noise caused most of the congregation to jump and turn towards the back of the church towards the vestibule where they then seen the invading force of the CIA. 
