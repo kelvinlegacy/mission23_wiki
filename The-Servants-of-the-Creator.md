@@ -23,7 +23,28 @@ The tasks they are given to do have one primary focus: life. Making sure it cont
 Micah has described the Servants of the Creator as “trench workers” getting the gifts from the Creator to the people on Earth. He describes the Creator as the bobcat operator who pulls them out in the event of a collapse, but never giving them any time off and putting them right back into the trench. 
 
 ### Micah 
-Micah was born Kelvin Eugene Williams on March 23, 1977 in Clarksville, TN but central Kentucky, specifically Jessamine County, is home.  He was merely born in TN.
+Micah was born Kelvin Eugene Williams on March 23, 1977 in Clarksville, TN but central Kentucky, specifically Jessamine County, is home.  He was merely born in TN.  
+
+### Education
+GED
+Jessamine County High School
+Class of 1995
+* The Creator says of Micah's 1993 Colts yearbook, "There is only one, if you could call it acceptable ever, acceptable death in the yearbook, You know I hate cars, and he was named after you."  Because in His opinion, everyone else in the yearbook should be alive today.  Micah has had a very difficult time reaching anyone in his small hometown.  Those he has reached, are often impersonators.  
+
+Micah Carr Lawrence was a student at then-JCHS (now West Jessamine) that was killed in a single-vehicle accident.  He had a page dedicated to him in the 1993 yearbook, which from SotC's understanding was used by the CIA to locate all of Micah's classmates after He himself seen it at a friend, Jill Erwin in SW Atlanta, and classmate's house and shared several laughs.  Micah believes they were monitoring or supervising his visit completely undetected (an article on cloaking is planned).
+
+Micah has the _Micah Kick's Booty Challenge_ for anyone claiming to be a person in the JCHS 1993 yearbook.
+```
+Anyone who claiming to be a person photographed in the 1993 JCHS yearbook should be able to correctly answer 5 out of 7 questions:
+* Where did Micah die? (REQUIRED ANSWER) 
+* What was model & color is Danny K's truck (when you were in high school)?
+* Who provided security at McDonald's (when you were in high school)?
+* Which English teacher had a son that was a varsity football player that got injured (when you were in high school)?
+* What Home Economics class had the ovens (when you were in high school)?
+* Where were all of the athlete's lockers (or just the "Jocks" when you were in high school)?
+* Were you permitted to smoke cigarettes when you were on school grounds, if so, where?
+```
+
 
 #### Micah's Employers
 * McDonald's - 100 Imperial Hwy, Nicholasville, KY 40356-2502
@@ -47,4 +68,4 @@ Micah was born Kelvin Eugene Williams on March 23, 1977 in Clarksville, TN but c
 * 373K
 
 #### Micah's Contacts.
-Micah has dumped his iPhone contacts.  No one answers the phone or texts anymore.  You can review his contacts [here](https://github.com/Mission23/Mission23/blob/master/assets/micah_iphone/wiki-dump.txt.csv).  This is not an exhaustive list, Micah's Google account which the CIA now has had over 5,000 total contacts.
+Micah has dumped his iPhone contacts.  No one answers the phone or texts anymore.  You can review his contacts [here](https://github.com/Mission23/Mission23/blob/master/assets/micah_iphone/wiki-dump.txt.csv).  This is not an exhaustive list, Micah's Google account which the CIA now has had over 5,000 total contacts.   
