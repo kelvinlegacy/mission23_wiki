@@ -22,9 +22,9 @@ The images were received when Micah demanded a video conference after receiving 
 
 His family has not been heard from despite repeated attempts to call even engaging local police in Alabama and his sister’s office where she was a probation officer for the State of Alabama. 
 
-From what TSOTC have ascertained, these gift certificates have a face value in the hundreds of dollars and the menus are very attractive. The gift certificates are sent from entities that people inherently trust, Micah’s mother received one from the FBI, but it was really from the CIA. 
+From what the SotC have ascertained, these gift certificates have a face value in the hundreds of dollars and the menus are very attractive. The gift certificates are sent from entities that people inherently trust, Micah’s mother received one from the FBI, but it was really from the CIA. 
 
-Conor’s in Huntsville did not have an alcohol license. TSOTC checked well after Micah’s family had been murdered there. 
+Conor’s in Huntsville did not have an alcohol license. The SotC checked well after Micah’s family had been murdered there. 
 
 The scheme works well for individuals they target, and feel they need to kill to cover up the entire tragedy, who have firearms at home or live in high rise condominiums where their chance of being caught is high. 
 
