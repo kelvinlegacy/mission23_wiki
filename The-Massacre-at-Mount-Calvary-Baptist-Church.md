@@ -19,9 +19,9 @@ Please note:  The City of Lexington and Lexington-Fayette Urban County Governmen
 
 ## The Initial Massacre 
 
-The massacre started on March 19, 2023 when the CIA stormed the church near the end of the morning worship session. 
+The massacre started on April 2, 2023 when the CIA stormed the church near the end of the morning worship session. 
 
-CIA personnel quietly blocked the two back exits located in the men and women’s rest areas, then approximately fifty men and a handful of women gathered in the vestibule undetected by the congregation. 
+CIA personnel quietly blocked the two back exits located in the men and women’s rest areas, the door between each rest area and the sanctuary is always closed during services (this may not be evident in the charade videos). Then approximately fifty men and a handful of women gathered in the vestibule (a small gathering room designed to prevent interruption of services by late arrivals) and on the front steps undetected by the congregation. 
 
 ![Floorplan of Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/blob/master/assets/floorplan.png)
 
