@@ -1,6 +1,6 @@
 Welcome to the #Mission23 wiki. 
 
-This wiki will cover topics related to The Servants of the Creator’s mission on Earth.
+This wiki will cover topics related to the Servants of the Creator’s (SotC) mission on Earth.
 
 The Servants of the Creator were appointed by the Creator over six billion years ago and are sent anywhere in His creation (called the “universe” here on Earth, His creation doesn’t end there—-there’s way more) where life exists and its continued existence is threatened or could be improved. 
 
@@ -24,12 +24,12 @@ The #GreatStorm is not drizzle or rain, nor the flood in Noah’s Ark.
 
 To understand the Biblical flood, one must understand arks are not boats, they are messages or a lesson (think: the Ark of the Covenant, no boat). The takeaway from Noah’s Ark, that time when He started to rain, only the lower animals were shielded from the rain. 
 
-This is a #GreatStorm. There is a problem plaguing humanity and threatening continued life on the planet. This storm will change life on the planet, historically the Creator and the SOTC enjoy an approval rating above 99%. 
+This is a #GreatStorm. There is a problem plaguing humanity and threatening continued life on the planet. This storm will change life on the planet, historically the Creator and the SotC enjoy an approval rating above 99%. 
 
 #Mission23 was to address, amongst other things, three of the top four causes of death in humans, but that has been paused to address a rapidly rising cause of death: the CIA and their counterparts around the world. 
 
 The militaries of the world provide intelligence along with the necessary checks and balances to prevent tyrants typically. These non-government, for-profit intelligence outfits are killing indiscriminately anyone that their customers (not always a government) pay them to. 
 
-The SOTC have now lost everyone they’ve ever known and even those who just knew their names. Now to cover it up, the CIA is killing anyone who asks about someone missing. Nearly all the victims were erased, no bodies left behind (chemically cremated). Some deaths were further hidden from family, friends and colleagues through an impersonation program that created a “hotel” from the victim’s life that the CIA would have employees or contractors move into to steal everything they left behind. 
+The SotC have now lost everyone they’ve ever known and even those who just knew their names. Now to cover it up, the CIA is killing anyone who asks about someone missing. Nearly all the victims were erased, no bodies left behind (chemically cremated). Some deaths were further hidden from family, friends and colleagues through an impersonation program that created a “hotel” from the victim’s life that the CIA would have employees or contractors move into to steal everything they left behind. 
 
 We do not know when we, The Servants of the Creator, will be told to resume our mission but it will be soon. Remember our approval rating and know that He wants us all to “live and let live” and have lots of fun doing it. 
