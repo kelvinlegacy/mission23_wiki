@@ -2,7 +2,7 @@ The Servants of the Creator were appointed over six billion years ago. There are
 
 The servants perform tasks assigned to them by the Creator. The Creator does speak directly to them, and only them. Wherever in the universe the task is to be completed, the pair are sent and arrive by birth.
 
-## 100% Human
+## 100% Human & 95% Earthling
 The Creator says the birth of his servants on a planet is absolutely necessary, as they cannot possibly perform their tasks without understanding the world they are living and working in. The servants are 100% human, the miracles they perform are 99.2% the Creator. 
 
 Thomas says, “They are American by birth, and southern by the grace of God.” (A common saying amongst those from the south.)
@@ -18,6 +18,8 @@ Since humans started keeping history, every mission and they’ve performed on E
 Micah says that he is the lowest ranking human being on the planet, and that Thomas is the second-lowest. Because while they work for the Creator, they serve every other human being on the planet. “TomTom is 1,000 years older than me and the Creator’s favorite… They’re closer in age and oh so boring. I can’t imagine their conversations together.”
 
 The tasks they are given to do have one primary focus: life. Making sure it continues and thrives. Life is always the number one priority of the Creator and His servants. 
+
+Earthling (n): A creature in the Earth neighborhood of the creation, that “makes mountains out of mole hills” and trusts all the wrong things, letting them (eg. the media) do all of their thinking. Ending up, “loving the ones they need to hate, and hating the ones they need to love.” (Partial) Quotes of Patricia Williams and Malcom X. 
 
 ## The Trench Workers 
 Micah has described the Servants of the Creator as “trench workers” getting the gifts from the Creator to the people on Earth. He describes the Creator as the bobcat operator who pulls them out in the event of a collapse, but never giving them any time off and putting them right back into the trench. 
