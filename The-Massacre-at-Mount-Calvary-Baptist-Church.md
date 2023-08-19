@@ -71,9 +71,7 @@ The grill doesn’t look like it was used at all.
 
 These images were taken outside of a “Company” (what the CIA often refers to itself as to hide its true identity) office in Riverdale, GA, near where Micah lives (by forced circumstance). He’s had numerous attempts on his life as he’s walked by this location along Hwy 85. He suspected and the Creator confirmed it was an announcement seeking workers for the August 13th grilling at Mount Calvary. Micah suspects the grill being left out means they are planning another. 
 
-Micah believes they’ve found a new church based on the sender of the $5 rent payment (an insult) his “roommate” (who is really a minder) just sent him. He believes the owner of the CashApp account is actually Duke Stone of Hickory Valley Christian Church in Chattanooga, TN. Duke has not returned calls any of Micah’s calls and he always does. 
-
-The Creator never advises His servants about the future or anyone’s thoughts or prayers, unless they have desired theirs to be shared or forwarded to the servants. 
+Micah believes they’ve found a new church based on the sender of the $5 rent payment (an insult) his “roommate” (who is really a minder) just sent him. He believes the owner of the CashApp account is actually Duke Stone of Hickory Valley Christian Church in Chattanooga, TN. Duke has not returned calls any of Micah’s calls and he always does.   
 
 ## The "Church" Today
 
@@ -149,25 +147,20 @@ When looking into the 40th Anniversary Micah asked the Creator, "Have you **ever
 The Creator responded: No.  
 
 ## Motive
-Micah does not believe, and the Creator has confirmed, it was not racially motivated. 
-
-The massacre at Mount Calvary was continuing a cover up of the CIA’s misdeeds in Sandy Hook, TN.  
-
-In order to never have those misdeeds known, the CIA has to completely erase Micah’s family and anyone who may know them. 
+While the operation's name is rooted in racism and racial epithets were used during the massacre Micah does not believe, and the Creator has confirmed, it was not racially motivated.  The massacre at Mount Calvary was continuing a cover up of the CIA’s misdeeds in Sandy Hook, TN.  In order to never have those misdeeds known, the CIA has to completely erase Micah’s family and anyone who may know them.    
 
 Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount Calvary Baptist Church and very active there. For a long time she was on the usher board and read the church announcements, putting her in front of thousands of worshipers over the years both from Mount Calvary and visiting congregations. 
 
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
 ## Warning 
-The Servants of the Creator recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the  church on Facebook as views may be tracked and reported to the CIA. 
+The Servants of the Creator (SotC) recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the  church on Facebook as views may be tracked and reported to the CIA. 
+
+The Creator says that if your loved one was last known to be heading to church service at Mount Calvary Baptist Church or Mount Calvary Missionary Baptist Church and they didn't return, that you should NOT file a missing persons report until this has been reported widely (seen on every evening news broadcast).  He furthers stating that law enforcement agencies, including the FBI, have provided the names of those reporting missing persons to the CIA, and the CIA has _investigated_ the reporter.
  
 If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agrees the best thing to do is to deny any relationship with, or knowledge of the church to anyone that asks. Micah says, "If you know the church, you know who's parked where, you know you can see that from afar.  YOU KNOW, he's always there early.  DO NOT GO ONTO CHURCH PROPERTY IF YOU DO NOT SEE HIM PARKED IN HIS SPOT.  Don't accept a new car, don't fall for it (they do read this too), I'll post here when he has given me the DNA test (it's oh so simple--my mom did it long ago!) that I asked of him to prove his identity.  It ain't Felix."
 
 Once the SotC announce they have taken control of the property it will be safe to visit. Sadly, the church has more than likely seen its last worship session.
-
-## Article To Do
-* Diagram / Floorplan of Mount Calvary Baptist Church
 
 ***
 _**Editor’s Note:** The narrative you are about to read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, March 19, 2023 from the Lexington area._
