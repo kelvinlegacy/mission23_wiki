@@ -1,3 +1,7 @@
+Warning: DO NOT ATTEMPT TO CONTACT MY MOTHER OR SISTER. PRAY. ASK IF THIS IS REAL, then see how you feel. If you have, tell everyone you did. They literally are killing everyone who inquires on someone else. Mom and Katrina are impersonated, I posted forever ago on Twitter. Mom has missed too many holidays. They are not here. Those people are running hotels, click that link on this wiki!!!! If you must, they both know how to make video calls. Don’t contact. But if you must, VIDEO ONLY! That’s how I busted them, that and verification questions only is three would know. -Micah / Kelvin 
+Remember if you called TELL EVERYONE YOU DID. THERE IS SAFETY IN NUMBERS. MY CONTACT INFO IS ON CONTACT PAGE!!!
+***
+
 Conor’s Steak and Seafood is a fake restaurant that serves death. Conor’s has opened nearly everywhere either of The Servants of the Creator have lived, worked, or visited, and they have had family, friends or colleagues disappear. The facade opens up in less than an afternoon. 
 
 Micah’s mother, Patricia Ann Crawley Williams, received a gift certificate there. 
