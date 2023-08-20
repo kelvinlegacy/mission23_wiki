@@ -1,11 +1,12 @@
-Quick Links to popular articles: [The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church) * 
+Quick Links to popular articles: [The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church) 
+
 # Welcome to SotC.wiki
 This is a public-access educational/informational wiki maintained by the Servants of the Creator, Micah and TomTom.  This wiki will cover topics related to the Servants of the Creator’s (SotC) Mission #23 on Earth.
 
 ## Why GitHub?
-Micah gets it.  Micah understands why you would ask that very question.  In short, git.  The longer version, everything these days pulls from GitHub.  We apologize to GitHub for the NSLs and shit they have to deal with from the government for this one, free account.  The Creator (also known as, "Allah", "God" and many other Supreme names) is actually monitoring them around the clock too--physically (life & limb) and technically.  
+Micah gets it.  Micah understands why you would ask that very question.  In short, git.  The longer version, everything these days pulls from GitHub.  If someone compromised his stuff again, people around the world who had already cloned it and pull regularly--whom they cannot identify--would know what happened.  Micah logged into several IRC networks, the biggest nerd channels and in one message (to avoid bans) begged nerds to clone it.  They did.  He was starting his own Revenge of the Nerds...  
 
-Micah, born Kelvin Williams, had Facebook almost as long as Facebook has been in existence (@kelvinewilliams), Twitter since it opened to the general public (@kelvinewilliams), Google+ from early beta (kelvinewilliams), GitHub he was very late to the party, forced to go by textPlus, but it's his only place to hangout now...  Plus git.  He is banned as soon as he creates an account.  Any post regarding Mount Calvary Baptist Church or the larger tragedy is suppressed or deleted.  
+GitHub because of README.md and file navigation, it makes it easy to create a "website" for this type of stuff quickly, and he needed that.  There's added security in the fact that nearly everything pulls from GitHub.  Even TomTom!   The NSA didn't want to mess with GitHub, it would essentially be screwing itself.  Public repos are free, Micah is broke (temporarily) and well...  PUBLIC!  Everybody look at it, read the correspondence.  
 
 Micah created the "MCBCMF" user account and secured it with complex password and 2FA, all while using a demo phone at the Apple store.  Granted permissions to his personal account to collaborate and made to sure to delete everything (passwords and 2FA).  Then began committing everything he had regarding his home church.  He had no other choice, because he was in Apple because of a low-tech hack that rendered him "iPhone Unavailable" and just screwed.
 
