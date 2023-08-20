@@ -1,14 +1,13 @@
-Welcome to the #Mission23 wiki. 
+# Welcome to SotC.wiki
+This is a public-access educational/informational wiki maintained by the Servants of the Creator, Micah and TomTom.  This wiki will cover topics related to the Servants of the Creator’s (SotC) Mission #23 on Earth.
 
-This wiki will cover topics related to the Servants of the Creator’s (SotC) mission on Earth.
+The Servants of the Creator were hired by the Creator over six billion years ago and are sent anywhere in His creation (called the “universe” here on Earth, although His creation doesn’t end there—-there’s way more) where life exists and its continued existence is threatened or could be improved. 
 
-The Servants of the Creator were appointed by the Creator over six billion years ago and are sent anywhere in His creation (called the “universe” here on Earth, His creation doesn’t end there—-there’s way more) where life exists and its continued existence is threatened or could be improved. 
 
-The wiki is currently being used to get information out to all interested parties. We know, the articles do not meet the standards of Wikipedia, we hope to fix that when time permits. 
+## Massacre at Mount Calvary Baptist Church
+Until enough of "We, the People" of the United States have pressured the federal government to stop the pressure on the Commonwealth of Kentucky to forget what they've seen, ignore what they've heard, and say nothing about the [Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church), this wiki is currently being used to get information out to all interested parties.  This is an ongoing massacre, the articles herein may not meet the standards of Wikipedia or media outlets, but we hope to fix that when time permits--suggestions and edits welcomed, please submit anonymously for the time being. 
 
-Currently https://CIAKill.site and https://CIAMassacre.site are forwarded here to disseminate information about the cause of the #GreatStorm. 
-
-# Great Storm Statement
+## The Great Storm 
 
 The start of #Mission23 has been delayed while the Creator storms. Immediately after the quaking finishes we are going to disappear for a short working vacation. 
 
