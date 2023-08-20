@@ -1,9 +1,16 @@
+Quick Links to popular articles: [The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church) * 
 # Welcome to SotC.wiki
 This is a public-access educational/informational wiki maintained by the Servants of the Creator, Micah and TomTom.  This wiki will cover topics related to the Servants of the Creator’s (SotC) Mission #23 on Earth.
 
+## Why GitHub?
+Micah gets it.  Micah understands why you would ask that very question.  In short, git.  The longer version, everything these days pulls from GitHub.  We apologize to GitHub for the NSLs and shit they have to deal with from the government for this one, free account.  The Creator (also known as, "Allah", "God" and many other Supreme names) is actually monitoring them around the clock too--physically (life & limb) and technically.  
+
+Micah, born Kelvin Williams, had Facebook almost as long as Facebook has been in existence (@kelvinewilliams), Twitter since it opened to the general public (@kelvinewilliams), Google+ from early beta (kelvinewilliams), GitHub he was very late to the party, forced to go by textPlus, but it's his only place to hangout now...  Plus git.  He is banned as soon as he creates an account.  Any post regarding Mount Calvary Baptist Church or the larger tragedy is suppressed or deleted.  
+
+Micah created the "MCBCMF" user account and secured it with complex password and 2FA, all while using a demo phone at the Apple store.  Granted permissions to his personal account to collaborate and made to sure to delete everything (passwords and 2FA).  Then began committing everything he had regarding his home church.  He had no other choice, because he was in Apple because of a low-tech hack that rendered him "iPhone Unavailable" and just screwed.
+
 The Servants of the Creator were hired by the Creator over six billion years ago and are sent anywhere in His creation (called the “universe” here on Earth, although His creation doesn’t end there—-there’s way more) where life exists and its continued existence is threatened or could be improved. 
-
-
+q
 ## Massacre at Mount Calvary Baptist Church
 Until enough of "We, the People" of the United States have pressured the federal government to stop the pressure on the Commonwealth of Kentucky to forget what they've seen, ignore what they've heard, and say nothing about the [Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church), this wiki is currently being used to get information out to all interested parties.  This is an ongoing massacre, the articles herein may not meet the standards of Wikipedia or media outlets, but we hope to fix that when time permits--suggestions and edits welcomed, please submit anonymously for the time being. 
 
