@@ -5,7 +5,7 @@ The servants perform tasks assigned to them by the Creator. The Creator does spe
 ## 100% Human & 95% Earthling
 The Creator says the birth of his servants on a planet is absolutely necessary, as they cannot possibly perform their tasks without understanding the world they are living and working in. The servants are 100% human, the miracles they perform are 99.2% the Creator. 
 
-Thomas says, “They are American by birth, and southern by the grace of God.” (A common saying amongst those from the south.)
+They are “American by birth, and southern by the grace of God” according to TomTom. 
 
 After birth, the two grow up separately and always meet later in life prior to the start of their mission to complete their tasks. They do not always appear to be working together, but are, and are fully-redundant even if geographically separated. 
 
