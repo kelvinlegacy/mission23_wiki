@@ -22,6 +22,10 @@ Until enough of "We, the People" of the United States have pressured the federal
 
 ## Why GitHub?
 
+Micah, remember was born Kelvin Eugene Williams, has a long history of “internetting.” Starting when he’d sneak into the University of Kentucky’s library and used a “borrowed” (these would be airquotes if you were in the room with Micah—only the truth permitted on this wiki per the Creator, so really big air quotes) NeXTSTEP login to IRC and stuff. 
+
+He had Facebook (@kelvinewilliams) and Twitter (@kelvinewilliams) and was even a Plusser (@kelvinewilliams), since the beginning of each, same account, all him until… It wasn’t this job, the CIA or NSA (or their “rusty guns for hire”) stole them, now is banned anywhere he creates a new account within minutes. He was on the Internet when pictures were rare finds in the wild and video nonexistent. While he learned to read (and write) early, he was late to the GitHub party. Driven there by force by his former boss and supervisor at textPlus, also not answering calls, Donovan Sydow. Who told him repeatedly, “commit often…” (let me commit this now—new readers coming every moment)
+
 Micah gets it, he's even added some code in the newest repo--Micah understands why you would ask that very question. In short, git. The longer version, everything these days pulls from GitHub. If someone compromised his stuff again, people around the world who had already cloned it and pull regularly--whom they cannot identify--would know what happened. Micah logged into several IRC networks, the biggest nerd channels and in one message (to avoid bans) begged nerds to clone it. They did. He was starting his own Revenge of the Nerds...
 
 GitHub because of README.md and built-in repo navigation and file viewer, it makes it easy to create a "website" for this type of stuff quickly, and Micah needed that. There's added security in the fact that nearly everything pulls from GitHub. Even TomTom! The NSA didn't want to mess with GitHub, it would essentially be screwing itself. Public repos are free, Micah is broke (temporarily) and well... PUBLIC! Everybody needs to look at it, and most importantly read the correspondence.
