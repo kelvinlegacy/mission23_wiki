@@ -2,9 +2,9 @@
 
 # Welcome to SotC.wiki
 
-This is a public-access educational/informational wiki maintained by the Servants of the Creator, Micah and TomTom. This wiki will cover topics related to the Servants of the Creator’s (SotC) Mission #23 on Earth.
+The Servants of the Creator were put to work by the Creator over six billion years ago and are sent anywhere in His creation where life exists and its continued existence is threatened or could be improved.
 
-The Servants of the Creator were hired by the Creator over six billion years ago and are sent anywhere in His creation (called the “universe” here on Earth, although His creation doesn’t end there—-there’s way more) where life exists and its continued existence is threatened or could be improved. 
+This is a public-access educational/informational wiki maintained by the Servants of the Creator, Micah and TomTom. This wiki will cover topics related to the Servants of the Creator’s (SotC) Mission #23 on Earth.
 
 ## Massacre at Mount Calvary Baptist Church
 
