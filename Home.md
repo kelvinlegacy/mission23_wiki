@@ -21,7 +21,11 @@ I’m just gathering everything in one location for a new startup, The Mount Cal
 
 ## Massacre at Mount Calvary Baptist Church
 
-Until enough of "We, the People" of the United States have pressured the federal government to stop the pressure on the Commonwealth of Kentucky to forget what they've seen, ignore what they've heard, and say nothing about [the Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church), this wiki is currently being used to get information out to all interested parties. This is an ongoing massacre, the articles herein may not meet the standards of Wikipedia or media outlets, but we hope to fix that when time permits--suggestions and edits welcomed, please submit anonymously for the time being.
+The Creator has tasked His servants with ensuring the safety and security of everyone that visits Mount Calvary Baptist Church throughout Mission.  Additionally, the servants were given permission, if they want, to establish a memorial foundation to restore and preserve the church as close as possible to the way it was the on the day of the [massacre](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church).  Micah started it, although Langley doesn't think of that "MF" which stands for "Memorial Foundation" as memorial foundation, they're referring to him as a m.....f......  Micah does not mind, considering they have disrespected her memory consistently after they killed her.  She believed in forgiveness, she's probably forgave them before they killed her.  However, she'd lose her mind if she knew what they did to her beloved church, because people would remember her there.
+
+Micah does not subscribe to everything taught to him by his mother, nor his church, Mount Calvary Baptist Church...  He is that motherfucker that does not really do forgiveness, accidents happen they are the only thing that can be forgiven, but they planned way too much to call this an accident.   
+
+So, the [wiki entry](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church)   here is about the task.  Background must be provided for all SotC tasks, otherwise, the local creatures will claim we're invading and destroying their way of life.
 
 ## Why GitHub?
 
