@@ -1,3 +1,6 @@
+**This intro being written now. Refresh often.**
+**CIA operatives currently working on psychological assault on my subconscious, while another team is literally trying to take off my head. That’s guaranteed death, but they’re working on the inside at the same time. For you at home, you’re probably hearing their third attack on the head… much lower on the body, definitely below the belt, there IS ruler at the bottom of the baptismal to tell me they will if I tell anyone what I seen there in the charade. I don’t care. BRB. It means I will be right back. Truth only here—-per the Creator. Regardless how much it hurts, truth only.**
+
 **Quick Links:** [The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church) - [The Creator](https://github.com/Mission23/Mission23/wiki/The-Creator) - [The Servants of the Creator](https://github.com/Mission23/Mission23/wiki/The-Servants-of-the-Creator) - [The Great Storm](https://github.com/Mission23/Mission23/wiki/The-Great-Storm) - [#Mission23](https://github.com/Mission23/Mission23/wiki/Mission-23)
 
 # Welcome to SotC.wiki
