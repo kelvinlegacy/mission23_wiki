@@ -1,5 +1,8 @@
-**This intro being written now. Refresh often.**
-**CIA operatives currently working on psychological assault on my subconscious, while another team is literally trying to take off my head. That’s guaranteed death, but they’re working on the inside at the same time. For you at home, you’re probably hearing their third attack on the head… much lower on the body, definitely below the belt, there IS ruler at the bottom of the baptismal to tell me they will if I tell anyone what I seen there in the charade. I don’t care. BRB. It means I will be right back. Truth only here—-per the Creator. Regardless how much it hurts, truth only.**
+# That bump right there Christians!!!
+
+That bump we felt during the 15:00 EDT hour on August 21, 2023...  That was Him...  Please hear what I got to say, I didn't know the bump was even coming until He did it...  Don't be stupid.  [Here's the audio file](https://github.com/Mission23/Mission23/blob/master/Warning-to-Christians-with-bump-from-God.m4a).  I'm working on something quickly for audio/video other than YouTube.
+
+****
 
 **Quick Links:** [The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church) - [The Creator](https://github.com/Mission23/Mission23/wiki/The-Creator) - [The Servants of the Creator](https://github.com/Mission23/Mission23/wiki/The-Servants-of-the-Creator) - [The Great Storm](https://github.com/Mission23/Mission23/wiki/The-Great-Storm) - [#Mission23](https://github.com/Mission23/Mission23/wiki/Mission-23)
 
