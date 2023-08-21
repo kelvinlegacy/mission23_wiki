@@ -1,4 +1,6 @@
-At the present time, the Creator only allows the use of Wire. 
+At the present time, the Creator only allows the use of Wire for any secure communication.
+
+If you demand WhatsApp, Telegram or Signal, the SotC will recommend they talk to you using plain old telephone service, or your native SMS apps.  Because, the NSA is going to read it anyway.  (Insert joke about saving CPU cycles/energy here...  Nevermind, no savings potential.)
 
 # Contact
 To contact Micah see his [Wire profile](https://account.wire.com/user-profile/?id=1CFBE1AC-E293-40D5-A38F-1E165D3DE50D).
