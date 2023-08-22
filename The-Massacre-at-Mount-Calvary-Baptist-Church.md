@@ -1,10 +1,7 @@
 **WARNING:  Before you call the church, you need to read this entire entry.  Your life depends on it.  Any visitor to the church is in harm's way.  Do not attend a funeral at the church until it is printed in the obituaries of the Lexington-Herald Leader.**
 
-```
-This a developing article and covers an ongoing event.  
-The SotC recommend reloading before reading.
-```
-
+**This a developing article and covers an ongoing event.  The SotC recommend reloading before reading.**
+***
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
  
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
