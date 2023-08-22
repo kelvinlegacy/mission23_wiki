@@ -2,9 +2,13 @@
 
 # Emergency- Save a Life!
 
+
+
 We need your assistance in reaching law enforcement in Kentucky. There is a Stingray in operation here in Riverdale I cannot trust I’m talking to the law enforcement in Kentucky.
 
 Please call Lexington KY Police (I cannot trust my Google results to provide you a number) and KY State Police in Frankfort ONLY—they will advise you to call Richmond or LexPD but let them know I am requesting the call and only them. 
+
+The address is Mount Calvary Baptist Church. 4742 Todds Rd, Lexington, KY. Lives may be in peril, they can enter! 
 
 I need them to send a FEW officers, I need dispatch to check on them every other minute until they’ve said it’s clear. 
 
