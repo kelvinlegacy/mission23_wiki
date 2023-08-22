@@ -1,4 +1,4 @@
-**WARNING:  Before you call the church, you need to read this entire entry.  Your life depends on it.  Any visitor to the church is in harm's way.  They must kill everyone--they think.**
+**WARNING:  Before you call the church, you need to read this entire entry.  Your life depends on it.  Any visitor to the church is in harm's way.  Do not attend a funeral at the church until it is printed in the obituaries of the Lexington-Herald Leader.**
 
 ```
 This a developing article and covers an ongoing event.  
