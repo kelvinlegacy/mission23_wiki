@@ -174,7 +174,11 @@ The CIA must erase the family of Micah and Micah himself. As Micah is one person
 
 The NSA and FBI are active in covering up the CIA’s actions and preventing Micah from getting the word out. 
 
-The FBI uses their “top law enforcement agency in the land” to obtain, disclosed then make disappear any 
+The NSA abuses its technical powers to eavesdrop on Micah and Thomas. They provide technical support to the CIA in numerous ways, including the COWs to divert calls to 911 and the personnel (often contractors who don’t know who they’re working for) to answer them. 
+
+The FBI uses their “top law enforcement agency in the land” to obtain, disclosed then make disappear any missing persons report and the person(s) who filed them. 
+
+According to the Creator, the President is aware of the ongoing massacre and is thinking of his political career instead of his citizens. He’s briefed daily by the CIA on the matter. He’s aware the FBI and NSA have devoted personnel to covering up the entire matter. President Biden has authorized the use of military force in the US against in at least two areas. 
 
 ## Warning 
 
