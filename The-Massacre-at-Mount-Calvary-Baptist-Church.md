@@ -2,23 +2,28 @@
 
 **This a developing article and covers an ongoing event.  The SotC recommend reloading before reading.**
 ***
+# BREAKING: 
+
+Much like _"Able Danger"_ was the blueprint for 9/11.  _"Surprise, Kill, Vanish"_ was the blueprint used by the CIA for Mount Calvary Baptist Church.  They haven't vanished though, she ("Hurricane Annie") keeps coming back for more SURPRISE attacks that are KILLing mourners of the previously VANISHed's funerals.  It's all right there on their [website](https://www.cia.gov/static/Review-Surprise-Kill-Vanish.pdf).  If the link breaks, we suspect it will quickly, don't worry, we have it--in multiple public places.
+***
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
  
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
 
-Mount Calvary Baptist Church at 4742 Todds Road, Lexington, KY is the site of the United States’ largest massacre ever, and it is ongoing. 
-
-The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. Its address implies city, if Fayette county were any other county, the church would be in a remote area called Pricetown with very little traffic and practically no routine police patrol activity. The church’s motto is: _Where the distance makes the difference._ (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
-
-Please note:  The City of Lexington and Lexington-Fayette Urban County Government should not be blamed or called lambasted.  They did not know about the massacre, their PSAP (Public Safety Answering Point / 911 Call Center) never received a call, all calls were diverted using temporary cell towers.  When Micah wrote his letter to the church, he copied law enforcement and the media.  The CIA wasted no time and were faster than e-mail, they told recipients that he was crazy and suffering from delusions, etc to make the letter really seem like the product of someone having a paranoid fantasy.  Please don't call them. 
+Mount Calvary Baptist Church in Lexington, KY is the site of the United States’ largest massacre ever, the largest massacre to occur within a church ever, and it continues today in an a systematic effort by the CIA and the US government to cover it up using mock funerals of those killed in the massacre.  Today's victims are not always affiliated with the church, nor the victims of the first Sunday attack.
 
 ![IMG_0065](https://github.com/Mission23/Mission23/assets/140252803/b157497c-8599-4f96-a21e-f31a97de71c6)
 
-## The Initial Massacre 
+## The First Sunday
 
-The massacre started on April 2, 2023 when the CIA stormed the church near the end of the morning worship session. 
+The massacre started on Sunday April 2, 2023 when men and women of the CIA, led by Annie Jacobsen, surprised the congregation (wait committing--come back soon) the church near the end of the morning worship session. 
 
 More than 125 men, women and children were killed that Sunday, and over 1,000 lives in total have been killed. 
+
+## Location of Massacre
+### Where The Distance Makes The Differencef
+
+The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. Its address implies city, if Fayette county were any other county, the church would be in a remote area called Pricetown with very little traffic and practically no routine police patrol activity. The church’s motto is: _Where the distance makes the difference._ (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
 
 ## Defenseless Victims
 
@@ -210,8 +215,12 @@ If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURC
 
 Once the SotC announce they have taken control of the property it will be safe to visit. Sadly, the church has seen its last worship session.
 
-***
-_**Editor’s Note:** The narrative you have  read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, April 2, 2023 from the Lexington area._
+***  
+_**Editor’s Notes:** The narrative you have read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, April 2, 2023 from the Lexington area._
+
+_The City of Lexington and Lexington-Fayette Urban County Government should not be blamed or called.  They did not know about the first day of the massacre, their PSAP (Public Safety Answering Point / 911 Call Center) never received a call, all calls were diverted using temporary cell towers.  When Micah wrote his letter to the church, he copied law enforcement and the media.  The CIA wasted no time and were faster than e-mail, they told recipients that he was crazy and suffering from delusions, etc to make the letter really seem like the product of someone having a paranoid fantasy.  Please don't call them._
+
+[[1]] Suprise, Kill, Vanish: https://www.cia.gov/static/Review-Surprise-Kill-Vanish.pdf
 
 
 ***
