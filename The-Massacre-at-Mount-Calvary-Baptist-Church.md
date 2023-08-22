@@ -38,6 +38,12 @@ The initial operation is referred to by the CIA and others as “Frying Chicken.
 
 Just as chicken that is frying can seemingly fight you back (with hot grease splattering), so can human beings when their sanctuary is invaded and lives threatened.
 
+## Massacre Preparations 
+
+Micah was arrested for shoplifting in Riverdale, GA in the early morning hours of April 2nd, 2023. Charges for shoplifting were never filed. 
+
+![IMG_0228](https://github.com/Mission23/Mission23/assets/140252803/bc3e2ba6-6187-433f-9496-3ff58153cdfe)
+
 ## The Ongoing Massacre 
 
 The church was partially rehabbed and videos were produced to portray a sense of normalcy. Visitors to the church anytime the church has been opened since have been murdered. 
