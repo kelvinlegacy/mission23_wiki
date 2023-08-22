@@ -172,3 +172,9 @@ Everything below is incoming and will become part of this article.
 ![IMG_0210](https://github.com/Mission23/Mission23/assets/140252803/50d14430-ff55-4fc0-ad1c-b51ad13e37b1)
 ![IMG_0207](https://github.com/Mission23/Mission23/assets/140252803/e75336c7-703f-4608-bb7e-69427e4c62a3)
 ![IMG_0208](https://github.com/Mission23/Mission23/assets/140252803/da1eed08-6bcf-46fc-98af-f4cc9f75ba28)
+![IMG_0218](https://github.com/Mission23/Mission23/assets/140252803/2e3cf755-5ac1-4199-85a7-adb6608bdf73)
+![IMG_0217](https://github.com/Mission23/Mission23/assets/140252803/f411455a-0066-4c9c-a742-b0e04c950017)
+![IMG_0216](https://github.com/Mission23/Mission23/assets/140252803/44c89a48-f7e7-4b98-8e32-d7c42576a5e6)
+![IMG_0215](https://github.com/Mission23/Mission23/assets/140252803/5673b72a-1c27-4716-bc12-4958f97ea6d5)
+![IMG_0214](https://github.com/Mission23/Mission23/assets/140252803/5427688c-0436-42b5-93ba-56d2e1907c0e)
+
