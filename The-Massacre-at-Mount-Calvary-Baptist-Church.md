@@ -61,7 +61,9 @@ The massacre continues and is referred to as “Grilling Chicken.” It was give
 
 In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral date and time. 
 
-On August 13, Micah sent out a plea for help on GitHub using commit messages. Previously he’d used Facebook friends of friends to thwart another attack on a church. But since then the CIA has hijacked his Facebook and all other social media. He had to turn to GitHub and they have faced increasing pressure to kill everything he’s stored in repos. But he suspected another funeral was about to occur as a minder showed up as his other minder had to go to “work” out of town. 
+On August 13, Micah sent out a plea for help on GitHub using commit messages. Previously he’d used Facebook friends of friends to thwart another attack on a church. But since then the CIA has hijacked his Facebook and all other social media. He had to turn to GitHub and they have faced increasing pressure to kill everything he’s stored in git repositories. But he suspected another funeral was about to occur as a minder showed up as his other minder had to go to “work” out of town. 
+
+On August 21, Micah was told by "Danny" that he had to go out of town again for work.  Two minders showed up again.  Micah began efforts to thwart any possible planned ceremony at the church on August 22, 2023.
 
 ![IMG_0075](https://github.com/Mission23/Mission23/assets/140252803/73b5ddad-2d38-4af2-9339-6f4181844a18)
 
@@ -139,9 +141,7 @@ The CIA is planning an effort to eliminate any remaining associates of Mount Cal
 
 The charade church is circulating this flyer, which was obtained from the charade's Facebook page but we have learned is also being circulated via e-mail to area churches.  The flyer is not a product of Mount Calvary Baptist Church, this is clearly evidenced by the address shown on the flyer.
 
-The address for the church shown at the top of this article is 4742 Todds Road.  The CIA which has no respect for the significance of Mount Calvary to Christians routinely abbreviates the "Mount" in Mount Calvary.  It also uses 4743 Todds Road for Mount Calvary, which is reported by Apple and Google Maps as the Mount Calvary Baptist Church Cemetery across the street.  Additionally, the flyer shows "Todd's" (note the apostrophe) Road, a common auto correction but something true members of Mount Calvary Baptist Church never mistake. 
-
-Anyone 
+The address for the church shown at the top of this article is 4742 Todds Road.  The CIA which has no respect for the significance of Mount Calvary to Christians routinely abbreviates the "Mount" in Mount Calvary.  It also uses 4743 Todds Road for Mount Calvary, which is reported by Apple and Google Maps as the Mount Calvary Baptist Church Cemetery across the street.  Additionally, the flyer shows "Todd's" (note the apostrophe) Road, a common auto correction but something true members of Mount Calvary Baptist Church never allow to happen.     
 
 ### Emmanuel Baptist Church
 
@@ -161,16 +161,18 @@ Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount 
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
 ## Warning 
-The Servants of the Creator (SotC) recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the  church on Facebook as views may be tracked and reported to the CIA. 
+The Servants of the Creator (SotC) recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the  church on Facebook as views may be tracked and reported to the CIA.
+
+When the SotC have taken control of the church, an announcement will be here on this article.  Before the SotC take control of the church, you will have heard this on the evening broadcast news around the world, and there will have been earthquakes from the [ringing of the bell.](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell)
 
 The Creator says that if your loved one was last known to be heading to church service at Mount Calvary Baptist Church or Mount Calvary Missionary Baptist Church and they didn't return, that you should NOT file a missing persons report until this has been reported widely (seen on every evening news broadcast).  He furthers stating that law enforcement agencies, including the FBI, have provided the names of those reporting missing persons to the CIA, and the CIA has _investigated_ the reporter.
  
 If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agrees the best thing to do is to deny any relationship with, or knowledge of the church to anyone that asks. Micah says, "If you know the church, you know who's parked where, you know you can see that from afar.  YOU KNOW, he's always there early.  DO NOT GO ONTO CHURCH PROPERTY IF YOU DO NOT SEE HIM PARKED IN HIS SPOT.  Don't accept a new car, don't fall for it (they do read this too), I'll post here when he has given me the DNA test (it's oh so simple--my mom did it long ago!) that I asked of him to prove his identity.  It ain't Felix."
 
-Once the SotC announce they have taken control of the property it will be safe to visit. Sadly, the church has more than likely seen its last worship session.
+Once the SotC announce they have taken control of the property it will be safe to visit. Sadly, the church has seen its last worship session.
 
 ***
-_**Editor’s Note:** The narrative you are about to read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, March 19, 2023 from the Lexington area._
+_**Editor’s Note:** The narrative you have  read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, April 2, 2023 from the Lexington area._
 
 
 ***
