@@ -174,7 +174,11 @@ The CIA must erase the family of Micah and Micah himself. As Micah is one person
 
 The NSA and FBI are active in covering up the CIA’s actions and preventing Micah from getting the word out. 
 
-The NSA abuses its technical powers to eavesdrop on Micah and Thomas. They provide technical support to the CIA in numerous ways, including the COWs to divert calls to 911 and the personnel (often contractors who don’t know who they’re working for) to answer them. 
+The NSA abuses its technical powers to eavesdrop on Micah and Thomas. They provide technical support to the CIA in numerous ways, including the COWs to divert calls to 911 and the personnel (often contractors who don’t know who they’re working for) to answer them. The NSA uses some of the Facebook and Social Media accounts of Micah’s friends to further torment him. 
+
+Stuart Bruner is a friend of Micah’s and currently missing. His posts always reflect discussions held in Micah’s private apartment where Stuart has never been. 
+
+![IMG_0210](https://github.com/Mission23/Mission23/assets/140252803/50d14430-ff55-4fc0-ad1c-b51ad13e37b1)
 
 The FBI uses their “top law enforcement agency in the land” to obtain, disclosed then make disappear any missing persons report and the person(s) who filed them. 
 
@@ -199,7 +203,6 @@ _**Editor’s Note:** The narrative you have  read is true. If you do not believ
 ***
 Everything below is incoming and will become part of this article. 
 
-![IMG_0210](https://github.com/Mission23/Mission23/assets/140252803/50d14430-ff55-4fc0-ad1c-b51ad13e37b1)
 ![IMG_0207](https://github.com/Mission23/Mission23/assets/140252803/e75336c7-703f-4608-bb7e-69427e4c62a3)
 ![IMG_0208](https://github.com/Mission23/Mission23/assets/140252803/da1eed08-6bcf-46fc-98af-f4cc9f75ba28)
 ![IMG_0218](https://github.com/Mission23/Mission23/assets/140252803/2e3cf755-5ac1-4199-85a7-adb6608bdf73)
