@@ -126,6 +126,13 @@ It took him a while to realize how they could get it so wrong and then he figure
 Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.”
 
 ## Continuing the Massacre
+### Funerals
+
+The SotC have learned that at least ten funerals were held at Mount Calvary Baptist Church but they were held to kill any person who came to pay their respects.  The funerals are not announced in the obituaries and are not for any one person.
+
+Anyone who calls the church inquiring about a missing loved one is told of their funeral.  The funeral date is given and when the mourner arrives at the church they are killed.  This is being done to silence anyone with a missing friend or loved one.  The SotC advise everyone to not call the church, and only attend a funeral after verifying the death with a minimum of 1) the hospital or coroner, 2) a reputable funeral home, 3) an obituary in the Lexington-Herald Leader, and 4) the cemetery where they are to be interred.  
+
+### 40th Pastoral Anniversary
 ![IMG_0120](https://github.com/Mission23/Mission23/assets/140252803/25a652c1-87b0-45c9-b19c-cb806f07e4f4)
 
 The CIA is planning an effort to eliminate any remaining associates of Mount Calvary Baptist Church or the Rev. Dr. Felix G. Williams, III and is using Rev. Williams' 40th Pastoral Anniversary to attract those who have not yet been identified.
