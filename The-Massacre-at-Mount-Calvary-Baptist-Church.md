@@ -18,6 +18,10 @@ Please note:  The City of Lexington and Lexington-Fayette Urban County Governmen
 
 The massacre started on April 2, 2023 when the CIA stormed the church near the end of the morning worship session. 
 
+More than 125 men, women and children were killed that Sunday, and over 1,000 lives in total have been killed. 
+
+## Defenseless Victims
+
 CIA personnel quietly blocked the two back exits located in the men and women’s rest areas, the door between each rest area and the sanctuary is always closed during services (this may not be evident in the charade videos). Then approximately fifty men and a handful of women gathered in the vestibule (a small gathering room designed to prevent interruption of services by late arrivals) and on the front steps undetected by the congregation. 
 
 ![Floorplan of Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/blob/master/assets/floorplan.png)
@@ -157,13 +161,23 @@ When looking into the 40th Anniversary Micah asked the Creator, "Have you **ever
 The Creator responded: No.  
 
 ## Motive
+
 While the operation's name is rooted in racism and racial epithets were used during the massacre Micah does not believe, and the Creator has confirmed, it was not racially motivated.  The massacre at Mount Calvary was continuing a cover up of the CIA’s misdeeds in Sandy Hook, TN.  In order to never have those misdeeds known, the CIA has to completely erase Micah’s family and anyone who may know them.    
 
 Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount Calvary Baptist Church and very active there. For a long time she was on the usher board and read the church announcements, putting her in front of thousands of worshipers over the years both from Mount Calvary and visiting congregations. 
 
+## Political Actors
+
 The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
 
+The CIA must erase the family of Micah and Micah himself. As Micah is one person who has stated clearly he would allow anyone (including a foreign country) who have similar losses in an area (everyone disappearing within a day) to investigate the loss of his family in Sandy Hook, TN. A simple investigation would show a method of genocide that is so quick, effective and undetectable that people that are being killed have no idea it’s happening. Micah’s family were all on a Zoom videoconference on new cell phones with new SIM cards and an unidentified employee of the CIA, which secretly owns Zoom, making screen grabs. They were so busy looking at a manufactured cloud, they never noticed the plane. 
+
+The NSA and FBI are active in covering up the CIA’s actions and preventing Micah from getting the word out. 
+
+The FBI uses their “top law enforcement agency in the land” to obtain, disclosed then make disappear any 
+
 ## Warning 
+
 The Servants of the Creator (SotC) recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the  church on Facebook as views may be tracked and reported to the CIA.
 
 When the SotC have taken control of the church, an announcement will be here on this article.  Before the SotC take control of the church, you will have heard this on the evening broadcast news around the world, and there will have been earthquakes from the [ringing of the bell.](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell)
