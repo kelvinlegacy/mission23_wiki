@@ -1,9 +1,3 @@
-# That bump right there Christians!!!
-
-That bump we felt during the 15:00 EDT hour on August 21, 2023...  That was Him...  Please hear what I got to say, I didn't know the bump was even coming until He did it...  Don't be stupid.  [Here's the audio file](https://github.com/Mission23/Mission23/blob/master/Warning-to-Christians-with-bump-from-God.m4a).  I'm working on something quickly for audio/video other than YouTube.
-
-****
-
 **Quick Links:** [The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church) - [The Creator](https://github.com/Mission23/Mission23/wiki/The-Creator) - [The Servants of the Creator](https://github.com/Mission23/Mission23/wiki/The-Servants-of-the-Creator) - [The Great Storm](https://github.com/Mission23/Mission23/wiki/The-Great-Storm) - [#Mission23](https://github.com/Mission23/Mission23/wiki/Mission-23)
 
 # Welcome to SotC.wiki
