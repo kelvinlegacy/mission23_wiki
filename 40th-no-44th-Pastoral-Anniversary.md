@@ -28,7 +28,7 @@ This is not Kennedy between my “mom” and Katrina.
 
 Here’s Karrington and a pregnant Katrina, also at Connor’s. Behind them of course, the CIA. “Brian,” Annie Jacobsen, and “Michael Blackmon.”
 
-![IMG_0167](https://github.com/Mission23/Mission23/assets/140252803/77d82b1f-10c0-4888-896f-d4bbf75545e0)
+![IMG_0054](https://github.com/Mission23/Mission23/assets/140252803/0ba8141d-7ef4-4406-babc-cad77077537f)
 
 
 I do have to ask… Where is the model Karrington, Katrina’s middle daughter, or her infant? Dear CIA, Your model looks a big larger than her last photo in life at your fake restaurant Connor’s. 
