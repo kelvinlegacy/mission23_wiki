@@ -44,7 +44,21 @@ Just as chicken that is frying can seemingly fight you back (with hot grease spl
 
 ## Massacre Preparations 
 
-Micah was arrested for shoplifting in Riverdale, GA in the early morning hours of April 2nd, 2023. Charges for shoplifting were never filed. 
+Micah, then Kelvin Williams, was arrested for shoplifting in Riverdale, GA in the early morning hours of April 2nd, 2023. Charges for shoplifting were never filed. 
+
+He was booked into Clayton County jail, in a scene that he calls, “unique.” There were practically no other detainees which he seen in booking for a county that is rather large, has a huge police presence, and holds the world’s busiest airport, Hartsfield-Jackson Atlanta International Airport (ATL).
+
+During booking, a well choreographed event, he encountered the CIA’s typical harassment jokes, torment, a TomTom lookalike, a “TB skin test” unlike any he’d ever had before that caused a small bleed. The material that escaped was so weird he tried to keep it with his property on a gauze pad sealed in a tied rubber glove for review outside of the jail. The jail refused to let him place it in his about to be sealed property bag (which wouldn’t be opened again except by him upon release). 
+
+Finally, a strip search tailor-made for him. No body cavity search performed, just a front and center visual inspection by at least three CIA employees, one posing as a guard, the other two inmate trustees. 
+
+After booking Micah walked with another CIA employee posing as an inmate unescorted through the entire length of a long service corridor to an housing unit at the far end. Once there was shown to an already overcrowded two-man cell, told to sleep on the floor between the perpendicular to the toilet against the wall, his body was partially exposed but head and torso under the lower bunk. 
+
+Micah spent the night in a cell, with constant visitors, with gnats and similar sized flying and crawling insects, chemicals smells he couldn’t identify the source of, and possibly gases. The Creator confirmed for Micah, the arrest was just an elaborate hit. Micah says, they had an art installation made under the bed, but could never really make out the scene. 
+
+Shortly before noon, Micah estimates, he was rushed out of Clayton County, encountering not a single true inmate through the entire process and handed over to a waiting DeKalb County Sheriff’s Deputy. After being placed in his SUV Micah started the long (when under attack) ride to DeKalb County Detention Center. 
+
+While the Deputy appeared to verify the warrant, Micah again endured a sustained attack from either cloaked individuals whom he could not see or from outside and/or above the vehicle. Micah seen and felt numerous lasers. The lasers are not for pointing, but killing. Micah has experienced them before beginning in the Des Moines airport, where he was hit in the heart by what appeared to be a passing traveler. 
 
 ![IMG_0228](https://github.com/Mission23/Mission23/assets/140252803/bc3e2ba6-6187-433f-9496-3ff58153cdfe)
 
