@@ -2,7 +2,7 @@
 
 # Emergency- Save a Life!
 
-
+effective: 8-22-23 14:33 EDT until: removed
 
 We need your assistance in reaching law enforcement in Kentucky. There is a Stingray in operation here in Riverdale I cannot trust I’m talking to the law enforcement in Kentucky.
 
