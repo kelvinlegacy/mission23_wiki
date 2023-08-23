@@ -37,6 +37,8 @@ Here’s Karrington and a pregnant Katrina, also at Connor’s. Behind them of c
 
 I do have to ask… Where is the model Karrington, Katrina’s middle daughter, or her infant? Dear CIA, Your model looks a big larger than her last photo in life at your fake restaurant Connor’s. 
 
+In fact where are the babies in my family? Cameron (I see his car daily at Legacy), Karrington (we will not talk about a car and Karrington at Legacy before my arrival). I’m reminded of all the outrage the CIA helped stir up about Jeremiah Wright and his interpretation of Psalm 137:8-9… “But America… Your chicken!!!! Chicky boom!”
+
 Katrina gave an award too? I know I’ve said this was a family operation but never like this! 
 
 ![IMG_0251](https://github.com/Mission23/Mission23/assets/140252803/14524ab6-1609-470d-a144-5efdd3f71263)
