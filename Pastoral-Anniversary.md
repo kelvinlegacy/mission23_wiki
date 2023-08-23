@@ -1,3 +1,9 @@
+The following is an open letter to the Central Intelligence Agency, and the federal government of the United States that supports them in all they do. 
+
+The SotC apologize in advance for any language. We have to remind people that we are human, with human experience, and we definitely do speak human. 
+
+***
+
 Dear CIA:
 
 It’s over. 
