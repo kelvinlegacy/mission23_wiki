@@ -1,3 +1,7 @@
+Dear CIA:
+
+It’s over. 
+
 This is not me. It could pass for an older version of me when I was a lot heavier. Maybe if you looked at my pics on my compromised Facebook account and then found a lookalike this is who you’d hire. 
 
 I may be an ordained minister, but I would not ever pastor a flock. They are a lot of responsibility. It’s not me, Im “frontline” you’ll hear, I have to keep everything moving. 
@@ -33,6 +37,18 @@ Here’s Karrington and a pregnant Katrina, also at Connor’s. Behind them of c
 
 I do have to ask… Where is the model Karrington, Katrina’s middle daughter, or her infant? Dear CIA, Your model looks a big larger than her last photo in life at your fake restaurant Connor’s. 
 
+Katrina gave an award too? I know I’ve said this was a family operation but never like this! 
+
+![IMG_0251](https://github.com/Mission23/Mission23/assets/140252803/14524ab6-1609-470d-a144-5efdd3f71263)
+
+And this…
+
+![IMG_0151](https://github.com/Mission23/Mission23/assets/140252803/7b3bae38-4b78-499e-a6cd-c5c9bb4389c2)
+
+I must take over this church. At the rate it’s going, one Thanksgiving argument and the church will split down the middle!
+
+That’s supposed to be my uncle Michael Richardson, aunt Cassandra, and their son’s, Cameron Richardson (not pictured), children all getting baptized. The problem is, they dont go to church. Even though my uncle Mike sits around on Sunday’s watching football, he is a member of this “Christian nation” he HAS seen a baptism, his heathen ass would lose his mind that you’d picture him just sitting in the “baptism pool,” your words. See the “order of protection” from the new all family, all the time, no room for anyone else, Mount Calvary MISSIONARY Baptist Church. 
+
 I’m starting to think the CIA just chases and pushes bogus paper. Readers beware of Connor’s gift certificates, they are really an invite to your death. See this entry about [Connor’s Steak and Seafood](https://github.com/Mission23/Mission23/wiki/Connor’s-Steak-and-Seafood)
 
 I am terribly worried about the lookalikes. The CIA has a bad habit of killing them. The last time I encountered a Katrina at the Walmart in Riverdale I pleaded with her to call her family. I showed her a photo of my sister. She was pulled into the back of the store and never left it. 
@@ -51,3 +67,21 @@ Did you see how well positioned everything was? But the new piano is gone.
 ![IMG_0247](https://github.com/Mission23/Mission23/assets/140252803/3d6dfbdf-ca18-49c4-b644-5d1225088a3f)
 
 They’ve obviously removed a few rows of pews too. 
+
+And those rows from the back wall… You can’t see where they were, people so overjoyed they flooded the aisle. But the mission statement is hanging there. 
+
+![IMG_0249](https://github.com/Mission23/Mission23/assets/140252803/4ade0708-f4b0-44c2-a8bf-2656f9757408)
+
+Sincerely,
+Kelvin “God get me out of this body now Please!” Williams
+Aka Micah 
+
+PS. Let me say it here for all the world to see, they are watching you bitches, I do not have a problem with Missionary Baptists, neither did Mount Calvary Baptist Church. I’m sure we’ve been a guest of theirs before and then ours. However, Dear CIA, since you want to make illegal recordings in my apartment, twist my words into something dirty. Let me say this: You’ve apparently made a family operation look alive and well Annie, but since I know they are all dead and gone that makes me, the one you couldn’t kill but keep fucking trying their heir. So I can speak freely. And since, Annie, Mr. President, Mr. J. Edgar Jrs twice removed cum stain, all of y’all decided to let Hurricane Annie fuck my family, fuck my church family, and then call us Missionary Baptist after tormenting them for hours with chainsaws… What I said was, “Since they fucked us and did it in the missionary position, we’ve got to fuck them back. 
+
+Fuck you guys, I’m coming home. Screw your fake ass order of protection, and threats of police. If you can’t kill me at Legacy at Riverdale, you damn sure ain’t when I get everyone from Jessamine county involved. 
+
+Do remember we’re much more cultured than that crew from West Virginia you’ve pissed off. 
+
+Let the fucking begin, when I press this little green button here. I think it says, I can’t really read, that public education, but you know where I started… that little red corvette, I mean building.
+
+Oh, it says, “Save” 
