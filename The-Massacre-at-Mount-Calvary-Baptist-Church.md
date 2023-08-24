@@ -32,7 +32,7 @@ CIA personnel quietly blocked the two back exits located in the men and women’
 
 ![Floorplan of Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/blob/master/assets/floorplan.png)
 
-A projection was then displayed on every stained glass window of the sanctuary. The projection made it appear as though dozens of men were standing outside of each window blocking it. 
+A projection was then displayed on every stained glass window of the sanctuary. The projection made it appear as though dozens of men were standing outside of each window blocking it.
 
 The already startled congregation then heard a female’s voice, instructing everyone to remain seated and that this was a law enforcement action.  A loud noise caused most of the congregation to jump and turn towards the back of the church towards the vestibule where they then seen the invading force of the CIA. 
 
@@ -241,6 +241,14 @@ The Creator says that if your loved one was last known to be heading to church s
 If any member of Mount Calvary Baptist Church reads this, DO NOT GO TO THE CHURCH. DO NOT CALL THE CHURCH. Everyone, including the Creator, agrees the best thing to do is to deny any relationship with, or knowledge of the church to anyone that asks. Micah says, "If you know the church, you know who's parked where, you know you can see that from afar.  YOU KNOW, he's always there early.  DO NOT GO ONTO CHURCH PROPERTY IF YOU DO NOT SEE HIM PARKED IN HIS SPOT.  Don't accept a new car, don't fall for it (they do read this too), I'll post here when he has given me the DNA test (it's oh so simple--my mom did it long ago!) that I asked of him to prove his identity.  It ain't Felix."
 
 Once the SotC announce they have taken control of the property it will be safe to visit. Sadly, the church has seen its last worship session.
+
+## Frequently Asked Questions 
+* How is there a first-hand account of events?
+     - The human race can only thank the Creator for that. He can take form of any conscious entity and does from time to time. On April 2nd, 2023 He was a black woman who went to church at Mount Calvary Baptist Church. He knew they had no intent of leaving anyone alive, so He went to witness everything so He could place the SotC there even though they weren’t. Micah says, “This is how I’ve been able to write the article, that and His input. We both have to go through the remainder when we are together. I’ve witnessed up to the point they entered the sanctuary, it was the most terrifying thing ever, and I was in my church, the last place I ever thought I’d be scared like that, I just knew I had to get out somehow but there was no way. It’s the worst two minutes of my life. He tells me it gets worse and went on for six hours. (s)He was one of the last to be killed.”
+     - The Creator cannot be killed, He has stepped in for both Micah and TomTom several times each when they were going to endure an exceptionally brutal death at the hands of the CIA. They merely wake up from a sleep somewhere else on Earth. 
+     - The Creator does not ever allow His SotC to not complete a mission. 
+* How did they project men outside the windows of the church?
+     - Micah sees this daily at his apartment at Legacy at Riverdale. He made a video, not the best example but pay attention to the area at the end of the broken blinds. [View it on YouTube](https://youtu.be/XVPIx8uZz2M?si=UfCDvHf78ja7wqHu)
 
 ***  
 _**Editor’s Notes:** The narrative you have read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, April 2, 2023 from the Lexington area._
