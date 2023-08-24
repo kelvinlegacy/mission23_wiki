@@ -249,6 +249,10 @@ _The City of Lexington and Lexington-Fayette Urban County Government should not 
 
 [[1]] Suprise, Kill, Vanish: https://www.cia.gov/static/Review-Surprise-Kill-Vanish.pdf
 
+***
+## Contact Information 
+
+If you want to contact Micah you must use Wire. [Click here for his profile and info on how to download Wire.](https://account.wire.com/user-profile/?id=1CFBE1AC-E293-40D5-A38F-1E165D3DE50D) The Creator forbids the use of any other secret messaging apps. 
 
 ***
 Everything below is incoming and will become part of this article. 
