@@ -48,7 +48,7 @@ The initial operation is referred to by the CIA and others as “Frying Chicken.
 
 Just as chicken that is frying can seemingly fight you back (with hot grease splattering), so can human beings when their sanctuary is invaded and lives threatened.
 
-## Massacre Preparations 
+### Securing Micah
 
 Micah, then Kelvin Williams, was arrested for shoplifting in Riverdale, GA in the early morning hours of April 2nd, 2023. Charges for shoplifting were never filed. 
 
