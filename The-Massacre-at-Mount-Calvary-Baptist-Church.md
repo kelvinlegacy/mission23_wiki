@@ -68,9 +68,9 @@ While the Deputy appeared to verify the warrant, Micah again endured a sustained
 
 ![IMG_0228](https://github.com/Mission23/Mission23/assets/140252803/bc3e2ba6-6187-433f-9496-3ff58153cdfe)
 
-After arriving at the DeKalb County Detention Center Micah asked the Deputy if he could use his phone while still seated in the car.  He sent out a tweet and contacted an acquaintance to let her know that he was arrested and his dog was locked in his apartment.
+After arriving at the DeKalb County Detention Center Micah asked the Deputy if he could use his phone while still seated in the car.  He sent out a tweet and contacted one of his "program managers" (that assisted him while homeless and obtaining his apartment at Legacy) to let her know that he was arrested and his dog was locked in his apartment.
 
-According to the Creator, shortly after Micah was inside the detention center, another Sheriffs Department employee notified Jacobsen that Micah was in custody and secure.  That is when Jacobsen launched the attack.
+According to the Creator, shortly after Micah was inside the detention center, Micah's program manager, "Tracy", notified Jacobsen that Micah was in custody and secure.  That is when Jacobsen launched the attack.
 
 ## The Ongoing Massacre 
 
