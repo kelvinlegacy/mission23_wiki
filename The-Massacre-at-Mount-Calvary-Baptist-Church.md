@@ -1,4 +1,4 @@
-**WARNING:  Before you call the church, you need to read this entire entry.  Your life depends on it.  Any visitor to the church is in harm's way.  Do not attend a funeral at the church, they are being used to attract loved ones and terminate anyone who may cause draw attention to the church by talking about missing persons.**
+**WARNING:  Before you call the church, you need to read this entire entry.  Your life depends on it.  The SotC are concerned that anyone who entering the church will be killed.  Do not attend a funeral at the church, they are being used to kill those who report victims missing.**
 
 **This a developing article and covers an ongoing event.  The SotC recommend reloading before reading.**
 ***
@@ -54,7 +54,7 @@ Micah, then Kelvin Williams, was arrested for shoplifting in Riverdale, GA in th
 
 He was booked into Clayton County jail, in a scene that he calls, “unique.” There were practically no other detainees which he seen in booking for a county that is rather large, has a huge police presence, and holds the world’s busiest airport, Hartsfield-Jackson Atlanta International Airport (ATL).
 
-During booking, a well choreographed event, he encountered the CIA’s typical harassment jokes, torment, a TomTom lookalike, a “TB skin test” unlike any he’d ever had before that caused a small bleed. The material that escaped was so weird he tried to keep it with his property on a gauze pad sealed in a tied rubber glove for review outside of the jail. The jail refused to let him place it in his about to be sealed property bag (which wouldn’t be opened again except by him upon release). 
+During booking, a well choreographed event, he encountered the CIA’s typical harassment jokes, torment, a TomTom lookalike, a “TB skin test” unlike any he’d ever had before that caused a small bleed. The material that escaped was so weird he tried to keep it with his property on a gauze pad sealed in a tied rubber glove for review outside of the jail. The jail refused to let him place it in his about to be sealed property bag, which wouldn’t be opened again except by him upon release.
 
 Finally, a strip search tailor-made for him. No body cavity search performed, just a front and center visual inspection by at least three CIA employees, one posing as a guard, the other two inmate trustees. 
 
@@ -62,7 +62,7 @@ After booking Micah walked with another CIA employee posing as an inmate unescor
 
 Micah spent the night in a cell, with constant visitors, with gnats and similar sized flying and crawling insects, chemicals smells he couldn’t identify the source of, and possibly gases. The Creator confirmed for Micah, the arrest was just an elaborate hit. Micah says, they had an art installation made under the bed, but could never really make out the scene. 
 
-Shortly before noon, Micah estimates, he was rushed out of Clayton County, encountering not a single true inmate through the entire process and handed over to a waiting DeKalb County Sheriff’s Deputy. After being placed in his SUV Micah started the long (when under attack) ride to DeKalb County Detention Center. 
+Shortly before noon, Micah estimates, he was rushed out of Clayton County, encountering not a single true inmate through the entire process and handed over to a waiting DeKalb County Sheriff’s Deputy. After being placed in his SUV Micah started the long ride to DeKalb County Detention Center. 
 
 While the Deputy appeared to verify the warrant, Micah again endured a sustained attack from either cloaked individuals whom he could not see or from outside and/or above the vehicle. Micah seen and felt numerous lasers. The lasers are not for pointing, but killing. Micah has experienced them before beginning in the Des Moines airport, where he was hit in the heart by what appeared to be a passing traveler. 
 
@@ -88,53 +88,63 @@ The replacement altar inscription is missing two words: “DO THIS” [IN REMEMB
 
 ## The "Church" Today
 
-The blood spilled on the first day of the massacre was cleaned for the most part and the church made presentable enough for video production.
+The church’s building and interior are seen in all of the videos produced and distributed on Facebook under the name “Mount Calvary Missionary Baptist Church.” In some correspondence the name, “Mount Calvary Missionary Baptist Church, Inc.” is used. The exterior and interior is without a doubt Mount Calvary Baptist Church as evidenced by exterior photos on Google Maps, and a very unique small mirrored glass window directly above the lectern. That window is located in the pastor’s office. 
+
+The blood spilled on the first day of the massacre was cleaned for the most part and the church made presentable enough for video production. The videos do not show most of the sanctuary, which is believed to still have blood stains. 
 
 Actors were hired to aide in the production of video and convey a since of normalcy at the church.  The videos and sermons, which are distributed on Facebook (see warning below), clearly show the actors are atheist and have no experience with Christian worship.
 
 ### "Grilling Chicken"
 
-The massacre at Mount Calvary Baptist Church continues and is referred to by the CIA as “Grilling Chicken.” It was given this moniker due to the fact that people are murdered as they arrive to services at the church, which is far more subdued than the first Sunday since victims arrive and are killed in much smaller groups.
+The massacre at Mount Calvary Baptist Church continues, and is referred to by the CIA as “Grilling Chicken.” It was given this moniker due to the fact that people are murdered as they arrive to services at the church, which is far more subdued than the first Sunday since victims arrive and are killed in much smaller groups.
 
-In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral date and time. 
+In addition to Sunday services, the CIA has holds mock funerals at the church for victims and persons contacting the church looking for them are given a funeral date and time. The SotC have learned from the Creator persons filing missing persons reports are located and killed off church property if they do not come to a funeral. 
 
 ## Political Actors
 
-The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
+The CIA added the “Missionary” because of the missions that Micah has told them he and TomTom “run” for the Creator. 
 
-The CIA must erase the family of Micah and Micah himself. As Micah is one person who has stated clearly he would allow anyone (including a foreign country) who have similar losses in an area (everyone disappearing within a day) to investigate the loss of his family in Sandy Hook, TN. A simple investigation would show a method of genocide that is so quick, effective and undetectable that people that are being killed have no idea it’s happening. Micah’s family were all on a Zoom videoconference on new cell phones with new SIM cards and an unidentified employee of the CIA, which secretly owns Zoom, making screen grabs. They were so busy looking at a manufactured cloud, they never noticed the plane. 
+The CIA must erase the family of Micah and Micah himself. As Micah is one person who has stated clearly he would allow anyone (including a foreign country) who have similar losses in a geographic area (ie. everyone disappearing within a day) to investigate the loss of his family in Sandy Hook, TN. 
+
+A simple investigation would show a method of genocide that is so quick, effective and undetectable that people that are being killed have no idea it’s happening. Micah’s family were all on a Zoom videoconference on new cell phones with new SIM cards, which they received in the mail. An unidentified employee of the CIA, which secretly owns Zoom, was making screen capture images. They were so busy looking at a manufactured cloud, they never noticed the plane or fine powder it dropped on them. Micah’s family had been irradiated from above, they were all dead within a day. 
 
 The NSA and FBI are active in covering up the CIA’s actions and preventing Micah from getting the word out. 
 
 The NSA abuses its technical powers to eavesdrop on Micah and Thomas. They provide technical support to the CIA in numerous ways, including the COWs to divert calls to 911 and the personnel (often contractors who don’t know who they’re working for) to answer them. The NSA uses some of the Facebook and Social Media accounts of Micah’s friends to further torment him. 
 
-Stuart Bruner and commenter, Scott Hager, are hometown friends of Micah’s and currently "missing" and impersonated. His posts always reflect discussions held in Micah’s private apartment where Stuart has never been. His posts are the first Micah would see when he'd log into the account and the CIA had a joke waiting.
+After describing the baptismal at Mount Calvary as a small pool to someone in his apartment, Micah encountered this post as the first thing he seen on Facebook the next day. 
 
 ![IMG_0210](https://github.com/Mission23/Mission23/assets/140252803/50d14430-ff55-4fc0-ad1c-b51ad13e37b1)
 
-The FBI uses their “top law enforcement agency in the land” to obtain, disclosed then make disappear any missing persons report and the person(s) who filed them. 
+Stuart Bruner and commenter, Scott Hager, are hometown friends of Micah’s and currently "missing" and impersonated. Neither have ever been to his apartments or homes outside of Jessamine County. 
 
-According to the Creator, the President is aware of the ongoing massacre and is thinking of his political career instead of his citizens. He’s briefed daily by the CIA on the matter. He’s aware the FBI and NSA have devoted personnel to covering up the entire matter. President Biden has authorized the use of military force in the US against in at least two areas. 
+The FBI uses their “top law enforcement agency in the land” to obtain, disclose to the CIA, who then make disappear anyone who reports a victim missing. 
+
+According to the Creator, the President is aware of the ongoing massacre and is thinking of his political career instead of his citizens. He’s briefed daily by the CIA on the matter. He’s aware the FBI and NSA have devoted personnel to covering up the entire matter. President Biden has authorized the use of military force in the US against Micah and surrounding US citizens. 
 
 ## The Charade Continues 
 
 The CIA has learned, from eavesdropping and in-person surveillance of his apartment that their charade is very easy to recognize by anyone who’s ever attended church regularly. In an effort to improve it, they have had their actors studying footage of Mount Calvary Baptist Church.
 
+Anyone attempting to find images from Mount Calvary pre-massacre will find it next to impossible. The only image Micah has found is from the CIA/NSA response to his first letter. It is the letterhead. 
+
 ![IMG_0122](https://github.com/Mission23/Mission23/assets/140252803/edf1b789-6ba3-405a-b1c6-aa15dfd3b7eb)
 
-The church has began using the choir stands and purchased a piano, but has no pianist. There are a lot of videos from 2017-2019 that were not on the Facebook page a couple of weeks ago. However, the videos still show the large signs in the choir stands with Mount abbreviated “Mt” and the choir is sitting on folding chairs. 
+The church has began using the choir stands and purchased a piano, but has no pianist. As of August 2023, there are new videos timestamped 2017-2019 that were not on the Facebook page a couple of weeks ago. However, the videos still show the damaged choir stands, missing organ, displaying large signs in the choir stands with Mount abbreviated “Mt” and the choir is sitting on folding chairs. 
 
-They also realized they had to do something to counter the actions taken by Micah in his initial letter since Rev. Williams never submitted to the requested oral swab for DNA testing to prove his identity. 
+They also realized they had to do something to counter the actions taken by Micah in his initial letter since Rev. Felix G Williamas, III  never submitted to the requested oral swab for DNA testing to prove his identity. 
 
-After hearing Micah say, “To become a member of Mount Calvary one has to get in their ass in the baptismal, there’s simply no other way.” The CIA removed the chemical cremation from the baptismal, installed a first of its kind seat, and begin baptizing new members. 
+After hearing Micah say, “To become a member of Mount Calvary one has to get in their ass in the baptismal, there’s no other way.” The CIA removed the chemical cremation from the baptismal, installed a first of its kind baptismal seat, and begin baptizing new members. 
 
 [[https://github.com/Mission23/mcbcmf/blob/base/assets/Photos/Baptism.JPG|alt=Baptism]]
 
-Upon seeing this photograph on their Facebook page, Micah almost lost his mind. 
+Upon seeing this photograph on their Facebook page, Micah almost lost his mind. “Did they even read about the Baptism of Jesus?” He asked. 
 
-It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance (entry/exit on the side) to the baptismal.” (He’s intentionally withholding the name of the song, and refuses to sing it.)
+It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old negro spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance (entry/exit on the side) to the baptismal.” (Micah intentionally withholding the name of the spiritual.)
 
-Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.” Read: Micah's [Open Letter to the CIA regarding the Pastoral Anniversary event](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary).
+Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.” 
+
+Micah addresses the family in  Micah's [Open Letter to the CIA regarding the Pastoral Anniversary event](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary).
 
 ## Continuing the Massacre
 ### Sunday Services
@@ -155,9 +165,9 @@ The CIA conducted an effort to eliminate any remaining associates of Mount Calva
 
 Micah has said several times that the church was a "family operation" and believes the CIA used this "Pastoral Anniversary" as a way to validate the charade and it's impersonators.  Micah's mother and sister had been living in Alabama, active members of a very large church.  The church's name is being withheld intentionally.
 
-Micah couldn't help but to notice the pastor at the lectern, that actor bear a strong resemblance to a much heavier Micah,                                       the one most in central Kentucky would remember.
+Micah couldn't help but to notice the pastor at the lectern, that actor bear a strong resemblance to a much heavier Micah,                                       the one most people in central Kentucky would remember.
 
-The Creator advises the photoshoot was held on Saturday before the announced event.  Regardless of the SotC's efforts to warn the publc, about 50 people were killed at the church on Sunday August 20, 2023.  The CIA's cycle continues as they located and killed all of those who filed missing persons reports for victims killed at the church who visited for the Pastoral Anniversary.
+The Creator advises the photoshoot was held on Saturday August 19, 2023 before the announced event.  Regardless of the SotC's efforts to warn the publc, about 50 people were killed at the church on Sunday August 20, 2023.  The CIA's cycle continues as they located and killed all of those who filed missing persons reports for victims killed at the church who visited for the Pastoral Anniversary.
 
 Micah expressed concerns for the impersonators resembling himself and family, the CIA according to the Creator has killed every one they've ever hired.
 
@@ -176,9 +186,11 @@ When looking into the 40th Anniversary Micah asked the Creator, "Have you **ever
 
 The Creator responded: No.  
 
+Micah furthers, “Most Christians spell it Immanuel.”
+
 ## Motive
 
-While the operation's name is rooted in racism and racial epithets were used during the massacre Micah does not believe, and the Creator has confirmed, it was not racially motivated.  The massacre at Mount Calvary was continuing a cover up of the CIA’s misdeeds in Sandy Hook, TN.  In order to never have those misdeeds known, the CIA has to completely erase Micah’s family and anyone who may know them.    
+While the operation's name is based on a racist stereotype and racial epithets were used during the massacre Micah does not believe, and the Creator has confirmed, it was not racially motivated.  The massacre at Mount Calvary was continuing a cover up of the CIA’s misdeeds in Sandy Hook, TN.  In order to never have those misdeeds known, the CIA has to completely erase Micah’s family and anyone who may know them.    
 
 Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount Calvary Baptist Church and very active there. For a long time she was on the usher board and read the church announcements, putting her in front of thousands of worshipers over the years both from Mount Calvary and visiting congregations. 
 
@@ -186,7 +198,7 @@ Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount 
 
 When Micah (born: Kelvin Eugene Williams), a lifelong member of the Mount Calvary Baptist Church, learned of the massacre he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  The correspondence and actions of the CIA before and after the initial letter clearly indicate that they in fact did conduct the massacre.
 
-To write the first letter Micah visited a public library in Riverdale, GA on May 5th, 2023.  While using a public computer, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator's session of VMWare Horizons (a PCOIP platform).  At 14:30 EDT He left the library at the Creator's instruction as military aircraft were approaching.  It ia the policy of the Creator that the SotC never flee danger, however He instructed Micah to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.  The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
+To write the first letter Micah visited a public library in Riverdale, GA on May 5th, 2023.  While using a public computer, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator's session of VMWare Horizons (a PCOIP platform).  At 14:30 EDT He left the library at the Creator's instruction as military aircraft were approaching.  It is the policy of the Creator that the SotC never flee danger, however He instructed Micah to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.  The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
 
 The purpose of the first letter was to take control of the church, name a interim pastor to invite law enforcement in the Commonwealth of Kentucky into the church to investigate the massacre, additionally Micah wanted to ensure that no other persons visiting Mount Calvary Baptist Church would be harmed since it was apparent to him and the Creator advised him that it was still being used to capture and kill any members who were not present on the first Sunday.
 
@@ -211,6 +223,8 @@ The correspondence between Micah and the CIA's ran church follows, the SotC has 
 * Micah responds to Attorney Yavon L. Griffin. 
     - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
 
+### Order of Protection Served
+
 * Micah was served with an Order of Protection.
     - [[Read Order (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf)
 
@@ -218,7 +232,7 @@ Micah was served an [Order of Protection](https://github.com/Mission23/mcbcmf/bl
 
 ## Warning 
 
-The Servants of the Creator (SotC) recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the  church on Facebook as views may be tracked and reported to the CIA.
+The Servants of the Creator (SotC) recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the church on Facebook as views may be tracked and reported to the CIA.
 
 When the SotC have taken control of the church, an announcement will be here on this article.  Before the SotC take control of the church, you will have heard this on the evening broadcast news around the world, and there will have been earthquakes from the [ringing of the bell.](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell)
 
