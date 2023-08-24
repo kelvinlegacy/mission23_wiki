@@ -263,9 +263,16 @@ _The City of Lexington and Lexington-Fayette Urban County Government should not 
 If you want to contact Micah you must use Wire. [Click here for his profile and info on how to download Wire.](https://account.wire.com/user-profile/?id=1CFBE1AC-E293-40D5-A38F-1E165D3DE50D) The Creator forbids the use of any other secret messaging apps. 
 
 ***
-Everything below is incoming and will become part of this article. 
+## Unwritten
+
+Everything below is incoming and will become part of this entry or related entries.
 
 ![IMG_0207](https://github.com/Mission23/Mission23/assets/140252803/e75336c7-703f-4608-bb7e-69427e4c62a3)
+* Gilead Sciences started the larger tragedy after learning of a cure of HIV.  The patient, was a friend of Micah's who received a formula designed Creator.  Micah was gathering proof cases.  During a routine viral load test, Ken Mabry's test came back "Target Not Found."  He was interrogated intensely, and told them "my friend gave me something."
+* Gilead Sciences paid $300,000 to a front company of the CIA to eliminate the problem--Ken and Micah (then Kelvin).
+* Gilead Sciences was joined by other major players in the pharmaceutical industry when they learned of the cure, as it meant the end of disease in human beings.
+* The Gilead Sciences led consortium to "cure the cure" has funded the entire tragedy and has paid for each and every life taken within the tragedy and at Mount Calvary Baptist Church.
+* Micah has begged Gilead Sciences to hit him with a Cease & Desist numerous times publicly, so he could willingly violate it to be pulled into a courtroom.  Gilead refuses to do so.  The tweet below was showing them how another business, one which they are a partner in, had found a lawyer capable of sending one.  They still haven't sent a Cease & Desist.
 ![IMG_0208](https://github.com/Mission23/Mission23/assets/140252803/da1eed08-6bcf-46fc-98af-f4cc9f75ba28)
 ![IMG_0218](https://github.com/Mission23/Mission23/assets/140252803/2e3cf755-5ac1-4199-85a7-adb6608bdf73)
 ![IMG_0217](https://github.com/Mission23/Mission23/assets/140252803/f411455a-0066-4c9c-a742-b0e04c950017)
