@@ -10,8 +10,6 @@ Mount Calvary Baptist Church in Lexington, KY is the site of the United Statesâ€
 
 More than 125 men, women and children were killed that Sunday, and over 1,000 lives in total have been killed. 
 
-services sent a message from her mobile device to a team waiting outside to start the operation.
-
 ## "Where The Distance Makes The Difference"
 
 Mount Calvary Baptist Church is located at 4742 Todds Road in Lexington, KY.  The church is in a remote area of Lexington with very low traffic and very few, if any, routine police patrols.
@@ -69,6 +67,10 @@ Shortly before noon, Micah estimates, he was rushed out of Clayton County, encou
 While the Deputy appeared to verify the warrant, Micah again endured a sustained attack from either cloaked individuals whom he could not see or from outside and/or above the vehicle. Micah seen and felt numerous lasers. The lasers are not for pointing, but killing. Micah has experienced them before beginning in the Des Moines airport, where he was hit in the heart by what appeared to be a passing traveler. 
 
 ![IMG_0228](https://github.com/Mission23/Mission23/assets/140252803/bc3e2ba6-6187-433f-9496-3ff58153cdfe)
+
+After arriving at the DeKalb County Detention Center Micah asked the Deputy if he could use his phone while still seated in the car.  He sent out a tweet and contacted an acquaintance to let her know that he was arrested and his dog was locked in his apartment.
+
+According to the Creator, shortly after Micah was inside the detention center, another Sheriffs Department employee notified Jacobsen that Micah was in custody and secure.  That is when Jacobsen launched the attack.
 
 ## The Ongoing Massacre 
 
