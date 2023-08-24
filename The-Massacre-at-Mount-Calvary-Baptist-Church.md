@@ -105,31 +105,37 @@ Micah believes they’ve found a new church based on the sender of the $5 rent p
 
 The blood spilled on the first day of the massacre was cleaned for the most part and the church made presentable enough for video production.
 
+Actors were hired to aide in the production of video and convey a since of normalcy at the church.  The videos and sermons, which are distrbuted on Facebook (see warning below), clearly show the actors are atheist and have no experience with Christian worship.
+
 When Micah (born: Kelvin Eugene Williams), a lifelong member of the Mount Calvary Baptist Church, learned of the massacre he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  The correspondence and actions of the CIA before and after the initial letter clearly indicate that they in fact did conduct the massacre.
 
-To write the first letter Micah visited a public library in Riverdale, GA.  While using a public terminal, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator's session of VMWare Horizons (a PCOIP platform).  He left the library at the Creator's instruction as military aircraft were approaching.  The Creator instructed him to do, due to the number of lives that could have been lost in the library and the apartment complex behind it.
+To write the first letter Micah visited a public library in Riverdale, GA on May 5th, 2023.  While using a public computer, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator's session of VMWare Horizons (a PCOIP platform).  At 14:30 EDT He left the library at the Creator's instruction as military aircraft were approaching.  It ia the policy of the Creator that the SotC never flee danger, however He instructed Micah to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.  The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
 
-The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
+The purpose of the first letter was to take control of the church, name a interim pastor to invite law enforcement in the Commonwealth of Kentucky into the church to investigate the massacre, additionally Micah wanted to ensure that no other persons visiting Mount Calvary Baptist Church would be harmed since it was apparent to him and the Creator advised him that it was still being used to capture and kill any members who were not present on the first Sunday.
+
+### Correspondence
+
+The correspondence between Micah and the CIA's ran church follows, the SotC has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
 
 * Micah writes to Rev. Dr. Felix G. Williams, III 
     - Expressed concern for the church.
     - Took action as member, objecting to property transfers.
     - Removed pastor, associate pastors and deacons until DNA test.
-    - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-LetterToMCBC.pdf)
+    - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-LetterToMCBC.pdf)
 
 * "Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. responds to Micah.
     - _"Word Soup"_ at the beginning of letter doesn't sound like anything ever said at the church.
     - Letterhead shows: a visiting choir in the choir stand, an open baptismal, and the top of the original organ it its original place. [[Logo (PNG Image)]](https://github.com/Mission23/Mission23/blob/master/assets/Letterhead.png)
-    - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-ResponseToKEW.pdf)
+    - [[Read Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-ResponseToKEW.pdf)
     
 * Attorney Yavon L. Griffin sends a Cease & Desist to Micah. 
-    - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230526-CeaseAndDesist.pdf)
+    - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230526-CeaseAndDesist.pdf)
 
 * Micah responds to Attorney Yavon L. Griffin. 
-    - [[Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
+    - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
 
 * Micah was served with an Order of Protection.
-    - [[Order (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf)
+    - [[Read Order (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf)
 
 Micah was served an [Order of Protection](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
 
