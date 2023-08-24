@@ -134,7 +134,7 @@ Upon seeing this photograph on their Facebook page, Micah almost lost his mind.
 
 It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance (entry/exit on the side) to the baptismal.” (He’s intentionally withholding the name of the song, and refuses to sing it.)
 
-Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.”
+Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.” Read: Micah's [Open Letter to the CIA regarding the Pastoral Anniversary event](Pastoral-Anniversary.md).
 
 ## Continuing the Massacre
 ### Sunday Services
