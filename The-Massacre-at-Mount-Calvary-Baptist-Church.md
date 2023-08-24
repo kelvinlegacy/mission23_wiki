@@ -134,7 +134,7 @@ Upon seeing this photograph on their Facebook page, Micah almost lost his mind.
 
 It took him a while to realize how they could get it so wrong and then he figured it out. Sermons, weddings, funerals and even communion services have been videotaped in the past. But at Mount Calvary, Micah says, “Everything about baptisms is old fashioned, there’s no instrumentation just one old spiritual is sung. I doubt anyone ever videotaped one. Further, if pictures are taken, they’d be taken from the front, not the service entrance (entry/exit on the side) to the baptismal.” (He’s intentionally withholding the name of the song, and refuses to sing it.)
 
-Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.” Read: Micah's [Open Letter to the CIA regarding the Pastoral Anniversary event](Pastoral-Anniversary.md).
+Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.” Read: Micah's [Open Letter to the CIA regarding the Pastoral Anniversary event](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary).
 
 ## Continuing the Massacre
 ### Sunday Services
@@ -151,7 +151,7 @@ Anyone who calls the church inquiring about a missing loved one is told of their
 
 ### 40th Pastoral Anniversary
 
-The CIA conducted an effort to eliminate any remaining associates of Mount Calvary Baptist Church and used this Pastoral Anniversary celebration to attract those who have not yet been killed.  Micah viewed the photographs posted on Facebook and wrote an [open letter](Pastoral-Anniversary.md) (warning: language) to the CIA after noticing the choir and the award presenters.  Actresses who looked like Micah's mother, niece and sister were photographed in well placed positions in the choir stand, and the actresses bearing a resemblance to his mother and sister were photographed presenting awards.  Micah was informed by the Creator that his mother and sister, along with her children, his three nieces, were murdered by the CIA in October of 2023.
+The CIA conducted an effort to eliminate any remaining associates of Mount Calvary Baptist Church and used this Pastoral Anniversary celebration to attract those who have not yet been killed.  Micah viewed the photographs posted on Facebook and wrote an [open letter](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary) (warning: language) to the CIA after noticing the choir and the award presenters.  Actresses who looked like Micah's mother, niece and sister were photographed in well placed positions in the choir stand, and the actresses bearing a resemblance to his mother and sister were photographed presenting awards.  Micah was informed by the Creator that his mother and sister, along with her children, his three nieces, were murdered by the CIA in October of 2023.
 
 Micah has said several times that the church was a "family operation" and believes the CIA used this "Pastoral Anniversary" as a way to validate the charade and it's impersonators.  Micah's mother and sister had been living in Alabama, active members of a very large church.  The church's name is being withheld intentionally.
 
@@ -161,7 +161,7 @@ The Creator advises the photoshoot was held on Saturday before the announced eve
 
 Micah expressed concerns for the impersonators resembling himself and family, the CIA according to the Creator has killed every one they've ever hired.
 
-Read: Micah's [Open Letter to the CIA regarding the Pastoral Anniversary event](Pastoral-Anniversary.md).
+Read: Micah's [Open Letter to the CIA regarding the Pastoral Anniversary event](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary).
 
 ### Emmanuel Baptist Church
 ![IMG_0120](https://github.com/Mission23/Mission23/assets/140252803/25a652c1-87b0-45c9-b19c-cb806f07e4f4)
