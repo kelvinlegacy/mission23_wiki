@@ -2,10 +2,6 @@
 
 **This a developing article and covers an ongoing event.  The SotC recommend reloading before reading.**
 ***
-# BREAKING: 
-
-Much like _"Able Danger"_ was the blueprint for 9/11.  _"Surprise, Kill, Vanish"_ was the blueprint used by the CIA for Mount Calvary Baptist Church.  They haven't vanished though, she ("Hurricane Annie") keeps coming back for more SURPRISE attacks that are KILLing mourners of the previously VANISHed's funerals.  It's all right there on their [website](https://www.cia.gov/static/Review-Surprise-Kill-Vanish.pdf).  If the link breaks, we suspect it will quickly, don't worry, we have it--in multiple public places.
-***
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
  
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
