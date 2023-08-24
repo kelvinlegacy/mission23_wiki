@@ -85,39 +85,13 @@ The replacement altar inscription is missing two words: “DO THIS” [IN REMEMB
 
 The blood spilled on the first day of the massacre was cleaned for the most part and the church made presentable enough for video production.
 
-Actors were hired to aide in the production of video and convey a since of normalcy at the church.  The videos and sermons, which are distrbuted on Facebook (see warning below), clearly show the actors are atheist and have no experience with Christian worship.
+Actors were hired to aide in the production of video and convey a since of normalcy at the church.  The videos and sermons, which are distributed on Facebook (see warning below), clearly show the actors are atheist and have no experience with Christian worship.
 
-When Micah (born: Kelvin Eugene Williams), a lifelong member of the Mount Calvary Baptist Church, learned of the massacre he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  The correspondence and actions of the CIA before and after the initial letter clearly indicate that they in fact did conduct the massacre.
+### "Grilling Chicken"
 
-To write the first letter Micah visited a public library in Riverdale, GA on May 5th, 2023.  While using a public computer, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator's session of VMWare Horizons (a PCOIP platform).  At 14:30 EDT He left the library at the Creator's instruction as military aircraft were approaching.  It ia the policy of the Creator that the SotC never flee danger, however He instructed Micah to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.  The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
+The massacre at Mount Calvary Baptist Church continues and is referred to by the CIA as “Grilling Chicken.” It was given this moniker due to the fact that people are murdered as they arrive to services at the church, which is far more subdued than the first Sunday since victims arrive and are killed in much smaller groups.
 
-The purpose of the first letter was to take control of the church, name a interim pastor to invite law enforcement in the Commonwealth of Kentucky into the church to investigate the massacre, additionally Micah wanted to ensure that no other persons visiting Mount Calvary Baptist Church would be harmed since it was apparent to him and the Creator advised him that it was still being used to capture and kill any members who were not present on the first Sunday.
-
-### Correspondence
-
-The correspondence between Micah and the CIA's ran church follows, the SotC has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
-
-* Micah writes to Rev. Dr. Felix G. Williams, III 
-    - Expressed concern for the church.
-    - Took action as member, objecting to property transfers.
-    - Removed pastor, associate pastors and deacons until DNA test.
-    - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-LetterToMCBC.pdf)
-
-* "Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. responds to Micah.
-    - _"Word Soup"_ at the beginning of letter doesn't sound like anything ever said at the church.
-    - Letterhead shows: a visiting choir in the choir stand, an open baptismal, and the top of the original organ it its original place. [[Logo (PNG Image)]](https://github.com/Mission23/Mission23/blob/master/assets/Letterhead.png)
-    - [[Read Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-ResponseToKEW.pdf)
-    
-* Attorney Yavon L. Griffin sends a Cease & Desist to Micah. 
-    - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230526-CeaseAndDesist.pdf)
-
-* Micah responds to Attorney Yavon L. Griffin. 
-    - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
-
-* Micah was served with an Order of Protection.
-    - [[Read Order (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf)
-
-Micah was served an [Order of Protection](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
+In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral date and time. 
 
 ## The Charade Continues 
 
@@ -140,6 +114,12 @@ It took him a while to realize how they could get it so wrong and then he figure
 Micah adds about the baptisms of late, “The family pictured on Facebook looks eerily like my uncle, aunt, and their grandchildren. All of which did not go to church and they are all missing today.” He adds, “Yes, I said it’s a family operation… But not all of the family participated.”
 
 ## Continuing the Massacre
+### Sunday Services
+
+According to the Creator, Mount Calvary Baptist Church is attended by CIA employees and contractors on Sundays who capture and kill anyone who enters the church.  
+
+The videos produced for Facebook are made on other days of the week and published on Sundays.  The SotC warn (see below) against viewing the videos or going to the Facebook page of "Mount Calvary Missionary Baptist Church" and cautions anyone who views the timestamps as true, the CIA modifies the timestamps of the posts to show activity on days and years different from the actual time taken or posted.
+
 ### Funerals
 
 The SotC have learned that at least ten funerals were held at Mount Calvary Baptist Church but they were held to kill any person who came to pay their respects.  The funerals are not announced in the obituaries and are not for any one person.
@@ -147,15 +127,21 @@ The SotC have learned that at least ten funerals were held at Mount Calvary Bapt
 Anyone who calls the church inquiring about a missing loved one is told of their funeral.  The funeral date is given and when the mourner arrives at the church they are killed.  This is being done to silence anyone with a missing friend or loved one.  The SotC advise everyone to not call the church, and only attend a funeral after verifying the death with a minimum of 1) the hospital or coroner, 2) a reputable funeral home, 3) an obituary in the Lexington-Herald Leader, and 4) the cemetery where they are to be interred.  
 
 ### 40th Pastoral Anniversary
-![IMG_0120](https://github.com/Mission23/Mission23/assets/140252803/25a652c1-87b0-45c9-b19c-cb806f07e4f4)
 
-The CIA is planning an effort to eliminate any remaining associates of Mount Calvary Baptist Church or the Rev. Dr. Felix G. Williams, III and is using Rev. Williams' 40th Pastoral Anniversary to attract those who have not yet been identified.
+The CIA conducted an effort to eliminate any remaining associates of Mount Calvary Baptist Church and used this Pastoral Anniversary celebration to attract those who have not yet been killed.  Micah viewed the photographs posted on Facebook and wrote an open letter to the CIA after noticing the choir and the award presenters.  Actresses who looked like Micah's mother, niece and sister were photographed in well placed positions in the choir stand, and the actresses bearing a resemblance to his mother and sister were photographed presenting awards.  Micah was informed by the Creator that his mother and sister, along with her children, his three nieces, were murdered by the CIA in October of 2023.
 
-The charade church is circulating this flyer, which was obtained from the charade's Facebook page but we have learned is also being circulated via e-mail to area churches.  The flyer is not a product of Mount Calvary Baptist Church, this is clearly evidenced by the address shown on the flyer.
+Micah has said several times that the church was a "family operation" and believes the CIA used this "Pastoral Anniversary" as a way to validate the charade and it's impersonators.  Micah's mother and sister had been living in Alabama, active members of a very large church.  The church's name is being withheld intentionally.
 
-The address for the church shown at the top of this article is 4742 Todds Road.  The CIA which has no respect for the significance of Mount Calvary to Christians routinely abbreviates the "Mount" in Mount Calvary.  It also uses 4743 Todds Road for Mount Calvary, which is reported by Apple and Google Maps as the Mount Calvary Baptist Church Cemetery across the street.  Additionally, the flyer shows "Todd's" (note the apostrophe) Road, a common auto correction but something true members of Mount Calvary Baptist Church never allow to happen.     
+Micah couldn't help but to notice the pastor at the lectern, that actor bear a strong resemblance to a much heavier Micah,                                       the one most in central Kentucky would remember.
+
+The Creator advises the photoshoot was held on Saturday before the announced event.  Regardless of the SotC's efforts to warn the publc, about 50 people were killed at the church on Sunday August 20, 2023.  The CIA's cycle continues as they located and killed all of those who filed missing persons reports for victims killed at the church who visited for the Pastoral Anniversary.
+
+Micah expressed concerns for the impersonators resembling himself and family, the CIA according to the Creator has killed every one they've ever hired.   
 
 ### Emmanuel Baptist Church
+![IMG_0120](https://github.com/Mission23/Mission23/assets/140252803/25a652c1-87b0-45c9-b19c-cb806f07e4f4)
+
+The address for the church shown at the top of this flyer is 4742 Todds Road.  The CIA which has no respect for the significance of Mount Calvary to Christians routinely abbreviates the "Mount" in Mount Calvary.  It also uses 4743 Todds Road for Mount Calvary, which is reported by Apple and Google Maps as the Mount Calvary Baptist Church Cemetery across the street.  Additionally, the flyer shows "Todd's" (note the apostrophe) Road, a common auto correction but something true members of Mount Calvary Baptist Church never allow to happen.  
 
 The Creator hears every prayer.  Regardless of the name the person praying is praying to, because all prayer lines go straight to the Creator.  The Creator does not share your prayers with His servants unless you specifically pray for Him to do so, or He knows it was your actual intent to get one of us a message.
 
@@ -188,6 +174,40 @@ Stuart Bruner is a friend of Micah’s and currently missing. His posts always r
 The FBI uses their “top law enforcement agency in the land” to obtain, disclosed then make disappear any missing persons report and the person(s) who filed them. 
 
 According to the Creator, the President is aware of the ongoing massacre and is thinking of his political career instead of his citizens. He’s briefed daily by the CIA on the matter. He’s aware the FBI and NSA have devoted personnel to covering up the entire matter. President Biden has authorized the use of military force in the US against in at least two areas. 
+
+## Taking Back The Church
+
+When Micah (born: Kelvin Eugene Williams), a lifelong member of the Mount Calvary Baptist Church, learned of the massacre he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  The correspondence and actions of the CIA before and after the initial letter clearly indicate that they in fact did conduct the massacre.
+
+To write the first letter Micah visited a public library in Riverdale, GA on May 5th, 2023.  While using a public computer, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator's session of VMWare Horizons (a PCOIP platform).  At 14:30 EDT He left the library at the Creator's instruction as military aircraft were approaching.  It ia the policy of the Creator that the SotC never flee danger, however He instructed Micah to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.  The letter was completed the following day at Atlanta's Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
+
+The purpose of the first letter was to take control of the church, name a interim pastor to invite law enforcement in the Commonwealth of Kentucky into the church to investigate the massacre, additionally Micah wanted to ensure that no other persons visiting Mount Calvary Baptist Church would be harmed since it was apparent to him and the Creator advised him that it was still being used to capture and kill any members who were not present on the first Sunday.
+
+### Correspondence
+
+The correspondence between Micah and the CIA's ran church follows, the SotC has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
+
+* Micah writes to Rev. Dr. Felix G. Williams, III 
+    - Expressed concern for the church.
+    - Took action as member, objecting to property transfers.
+    - Removed pastor, associate pastors and deacons until DNA test.
+    - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-LetterToMCBC.pdf)
+
+* "Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. responds to Micah.
+    - _"Word Soup"_ at the beginning of letter doesn't sound like anything ever said at the church.
+    - Letterhead shows: a visiting choir in the choir stand, an open baptismal, and the top of the original organ it its original place. [[Logo (PNG Image)]](https://github.com/Mission23/Mission23/blob/master/assets/Letterhead.png)
+    - [[Read Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230506-ResponseToKEW.pdf)
+    
+* Attorney Yavon L. Griffin sends a Cease & Desist to Micah. 
+    - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230526-CeaseAndDesist.pdf)
+
+* Micah responds to Attorney Yavon L. Griffin. 
+    - [[Read the Letter (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230629-ResponseToCeaseAndDesist.pdf)
+
+* Micah was served with an Order of Protection.
+    - [[Read Order (PDF)]](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf)
+
+Micah was served an [Order of Protection](https://github.com/Mission23/mcbcmf/blob/base/assets/Correspondence/20230731-ReceivedOOP.pdf) by an individual who appeared to be law enforcement.  Micah believes the Order of Protection is falsified, it was served merely seconds after he committed some data to the public respository and was unable to find any court date in online searches.  Furthermore, Micah, who was raised in Nicholasville, KY (next door to Lexington) is unaware of a Fayette County Sheriff, since all of Fayette county is Lexington and there's only the Lexington-Fayette Urban County Government, and the Lexington Police Department is the only law enforcement he's ever known there.
 
 ## Warning 
 
