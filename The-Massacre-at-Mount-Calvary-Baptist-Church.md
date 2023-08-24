@@ -93,6 +93,24 @@ The massacre at Mount Calvary Baptist Church continues and is referred to by the
 
 In addition to Sunday services, the CIA has held funerals at the church for those initially slain and persons contacting the church looking for their loved ones are contacted back advising them of a funeral date and time. 
 
+## Political Actors
+
+The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
+
+The CIA must erase the family of Micah and Micah himself. As Micah is one person who has stated clearly he would allow anyone (including a foreign country) who have similar losses in an area (everyone disappearing within a day) to investigate the loss of his family in Sandy Hook, TN. A simple investigation would show a method of genocide that is so quick, effective and undetectable that people that are being killed have no idea it’s happening. Micah’s family were all on a Zoom videoconference on new cell phones with new SIM cards and an unidentified employee of the CIA, which secretly owns Zoom, making screen grabs. They were so busy looking at a manufactured cloud, they never noticed the plane. 
+
+The NSA and FBI are active in covering up the CIA’s actions and preventing Micah from getting the word out. 
+
+The NSA abuses its technical powers to eavesdrop on Micah and Thomas. They provide technical support to the CIA in numerous ways, including the COWs to divert calls to 911 and the personnel (often contractors who don’t know who they’re working for) to answer them. The NSA uses some of the Facebook and Social Media accounts of Micah’s friends to further torment him. 
+
+Stuart Bruner is a friend of Micah’s and currently missing. His posts always reflect discussions held in Micah’s private apartment where Stuart has never been. 
+
+![IMG_0210](https://github.com/Mission23/Mission23/assets/140252803/50d14430-ff55-4fc0-ad1c-b51ad13e37b1)
+
+The FBI uses their “top law enforcement agency in the land” to obtain, disclosed then make disappear any missing persons report and the person(s) who filed them. 
+
+According to the Creator, the President is aware of the ongoing massacre and is thinking of his political career instead of his citizens. He’s briefed daily by the CIA on the matter. He’s aware the FBI and NSA have devoted personnel to covering up the entire matter. President Biden has authorized the use of military force in the US against in at least two areas. 
+
 ## The Charade Continues 
 
 The CIA has learned, from eavesdropping and in-person surveillance of his apartment that their charade is very easy to recognize by anyone who’s ever attended church regularly. In an effort to improve it, they have had their actors studying footage of Mount Calvary Baptist Church.
@@ -156,24 +174,6 @@ The Creator responded: No.
 While the operation's name is rooted in racism and racial epithets were used during the massacre Micah does not believe, and the Creator has confirmed, it was not racially motivated.  The massacre at Mount Calvary was continuing a cover up of the CIA’s misdeeds in Sandy Hook, TN.  In order to never have those misdeeds known, the CIA has to completely erase Micah’s family and anyone who may know them.    
 
 Micah’s mother, Patricia Ann Crawley Williams, was a longtime member of Mount Calvary Baptist Church and very active there. For a long time she was on the usher board and read the church announcements, putting her in front of thousands of worshipers over the years both from Mount Calvary and visiting congregations. 
-
-## Political Actors
-
-The CIA added the “Missionary” because of the missions that Micah has told them he runs for the Creator. 
-
-The CIA must erase the family of Micah and Micah himself. As Micah is one person who has stated clearly he would allow anyone (including a foreign country) who have similar losses in an area (everyone disappearing within a day) to investigate the loss of his family in Sandy Hook, TN. A simple investigation would show a method of genocide that is so quick, effective and undetectable that people that are being killed have no idea it’s happening. Micah’s family were all on a Zoom videoconference on new cell phones with new SIM cards and an unidentified employee of the CIA, which secretly owns Zoom, making screen grabs. They were so busy looking at a manufactured cloud, they never noticed the plane. 
-
-The NSA and FBI are active in covering up the CIA’s actions and preventing Micah from getting the word out. 
-
-The NSA abuses its technical powers to eavesdrop on Micah and Thomas. They provide technical support to the CIA in numerous ways, including the COWs to divert calls to 911 and the personnel (often contractors who don’t know who they’re working for) to answer them. The NSA uses some of the Facebook and Social Media accounts of Micah’s friends to further torment him. 
-
-Stuart Bruner is a friend of Micah’s and currently missing. His posts always reflect discussions held in Micah’s private apartment where Stuart has never been. 
-
-![IMG_0210](https://github.com/Mission23/Mission23/assets/140252803/50d14430-ff55-4fc0-ad1c-b51ad13e37b1)
-
-The FBI uses their “top law enforcement agency in the land” to obtain, disclosed then make disappear any missing persons report and the person(s) who filed them. 
-
-According to the Creator, the President is aware of the ongoing massacre and is thinking of his political career instead of his citizens. He’s briefed daily by the CIA on the matter. He’s aware the FBI and NSA have devoted personnel to covering up the entire matter. President Biden has authorized the use of military force in the US against in at least two areas. 
 
 ## Taking Back The Church
 
