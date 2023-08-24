@@ -13,8 +13,8 @@ We are His appointed servants.  Born here--no UFO landed dropping us off.  Micah
 * Address conditions caused by bacterium.
 * Address cancers.
 * Post-Massacre Mount Calvary Baptist Church
-- Safety & Security of all persons at the church. 
-- Establishing a memorial foundation. 
+     - Safety & Security of all persons at the church. 
+     - Establishing a memorial foundation. 
 * Other objectives as defined by the Creator
 
 # The Great Storm
