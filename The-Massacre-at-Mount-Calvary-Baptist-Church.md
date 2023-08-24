@@ -271,5 +271,12 @@ Everything below is incoming and will become part of this article.
 ![IMG_0217](https://github.com/Mission23/Mission23/assets/140252803/f411455a-0066-4c9c-a742-b0e04c950017)
 ![IMG_0216](https://github.com/Mission23/Mission23/assets/140252803/44c89a48-f7e7-4b98-8e32-d7c42576a5e6)
 ![IMG_0215](https://github.com/Mission23/Mission23/assets/140252803/5673b72a-1c27-4716-bc12-4958f97ea6d5)
+
+* The person posting this is not Stuart Bruner.  Stuart was a high school classmate of Kelvin / Micah's.  This is only to provide context into the "smallest pool" post of "Stuart's".  Micah was discussing how anyone in the Jessamine County High School 1993 could be verified as an actual student or resident of Jessamine County by asking them questions, which were:
+    - "Who was your ride partner on Kick Bootie?"  
+    - "What were the things the announcer said year after year?"
+    - "What was the song that he always played?"
+* Stuart would have never called the event the "Jessamine County Fair" as Kick Bootie was only in town every year for the "Jamboree," a lifelong resident of Jessamine County, we only know it as the "Jessamine Jamboree" or "Jamboree."  If they were to change the name a thousand times, true folks from Jessamine County only call it the "Jessamine Jamboree."
+* The photo is not of the Jessamine Jamboree either, in fact the photo came from nowhere in Jessamine County.  The Jamboree was held in the parking lot of K-Mart, then Kroger.  We've never had this grocery store in Jessamine County.
 ![IMG_0214](https://github.com/Mission23/Mission23/assets/140252803/5427688c-0436-42b5-93ba-56d2e1907c0e)
 
