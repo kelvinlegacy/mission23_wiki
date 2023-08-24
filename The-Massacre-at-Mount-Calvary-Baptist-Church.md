@@ -108,7 +108,7 @@ The NSA and FBI are active in covering up the CIA’s actions and preventing Mic
 
 The NSA abuses its technical powers to eavesdrop on Micah and Thomas. They provide technical support to the CIA in numerous ways, including the COWs to divert calls to 911 and the personnel (often contractors who don’t know who they’re working for) to answer them. The NSA uses some of the Facebook and Social Media accounts of Micah’s friends to further torment him. 
 
-Stuart Bruner is a friend of Micah’s and currently missing. His posts always reflect discussions held in Micah’s private apartment where Stuart has never been. 
+Stuart Bruner and commenter, Scott Hager, are hometown friends of Micah’s and currently "missing" and impersonated. His posts always reflect discussions held in Micah’s private apartment where Stuart has never been. His posts are the first Micah would see when he'd log into the account and the CIA had a joke waiting.
 
 ![IMG_0210](https://github.com/Mission23/Mission23/assets/140252803/50d14430-ff55-4fc0-ad1c-b51ad13e37b1)
 
