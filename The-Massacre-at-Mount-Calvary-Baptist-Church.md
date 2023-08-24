@@ -161,7 +161,9 @@ Micah couldn't help but to notice the pastor at the lectern, that actor bear a s
 
 The Creator advises the photoshoot was held on Saturday before the announced event.  Regardless of the SotC's efforts to warn the publc, about 50 people were killed at the church on Sunday August 20, 2023.  The CIA's cycle continues as they located and killed all of those who filed missing persons reports for victims killed at the church who visited for the Pastoral Anniversary.
 
-Micah expressed concerns for the impersonators resembling himself and family, the CIA according to the Creator has killed every one they've ever hired.   
+Micah expressed concerns for the impersonators resembling himself and family, the CIA according to the Creator has killed every one they've ever hired.
+
+Read: Micah's [Open Letter to the CIA regarding the Pastoral Anniversary event](Pastoral-Anniversary.md).
 
 ### Emmanuel Baptist Church
 ![IMG_0120](https://github.com/Mission23/Mission23/assets/140252803/25a652c1-87b0-45c9-b19c-cb806f07e4f4)
