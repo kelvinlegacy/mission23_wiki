@@ -274,6 +274,8 @@ Everything below is incoming and will become part of this entry or related entri
 * The Gilead Sciences led consortium to "cure the cure" has funded the entire tragedy and has paid for each and every life taken within the tragedy and at Mount Calvary Baptist Church.
 * Micah has begged Gilead Sciences to hit him with a Cease & Desist numerous times publicly, so he could willingly violate it to be pulled into a courtroom.  Gilead refuses to do so.  The tweet below was showing them how another business, one which they are a partner in, had found a lawyer capable of sending one.  They still haven't sent a Cease & Desist.
 ![IMG_0208](https://github.com/Mission23/Mission23/assets/140252803/da1eed08-6bcf-46fc-98af-f4cc9f75ba28)
+* Incomplete whitewashing/scrubbing of Mount Calvary Baptist Church.  
+* There are inconsistencies with what Apple, Google, MapQuest, etc consider Mount Calvary's address vs the "Mt. Calvary Missionary Baptist Church, Inc's" as shown on Facebook.
 ![IMG_0218](https://github.com/Mission23/Mission23/assets/140252803/2e3cf755-5ac1-4199-85a7-adb6608bdf73)
 ![IMG_0217](https://github.com/Mission23/Mission23/assets/140252803/f411455a-0066-4c9c-a742-b0e04c950017)
 ![IMG_0216](https://github.com/Mission23/Mission23/assets/140252803/44c89a48-f7e7-4b98-8e32-d7c42576a5e6)
