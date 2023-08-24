@@ -12,18 +12,25 @@ _“A massacre is the killing of a large number of people, especially those who 
 
 Mount Calvary Baptist Church in Lexington, KY is the site of the United States’ largest massacre ever, the largest massacre to occur within a church ever, and it continues today in an a systematic effort by the CIA and the US government to cover it up using mock funerals of those killed in the massacre.  Today's victims are not always affiliated with the church, nor the victims of the first Sunday attack.
 
+More than 125 men, women and children were killed that Sunday, and over 1,000 lives in total have been killed. 
+
+services sent a message from her mobile device to a team waiting outside to start the operation.
+
+## "Where The Distance Makes The Difference"
+
+Mount Calvary Baptist Church is located at 4742 Todds Road in Lexington, KY.  The church is in a remote area of Lexington with very low traffic and very few, if any, routine police patrols.
+
+The church’s motto is: _Where the distance makes the difference._
+
+The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. Its address implies city, however, if Fayette county were any other county, the church would be in a remote area called Pricetown. (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
+
 ![IMG_0065](https://github.com/Mission23/Mission23/assets/140252803/b157497c-8599-4f96-a21e-f31a97de71c6)
 
 ## The First Sunday
 
-The massacre started on Sunday April 2, 2023 when men and women of the CIA, led by Annie Jacobsen, surprised the congregation (wait committing--come back soon) the church near the end of the morning worship session. 
+The massacre started on Sunday April 2, 2023 when men and women of the CIA, led by Annie Jacobsen, executed an attack based on tactics written by Jacobsen in her book, "Surprise, Kill, Vanish."  
 
-More than 125 men, women and children were killed that Sunday, and over 1,000 lives in total have been killed. 
-
-## Location of Massacre
-### Where The Distance Makes The Differencef
-
-The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. Its address implies city, if Fayette county were any other county, the church would be in a remote area called Pricetown with very little traffic and practically no routine police patrol activity. The church’s motto is: _Where the distance makes the difference._ (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
+According to the Creator, Annie Jacobsen along with "Michael Blackmon" attended morning services and shortly before the end of 
 
 ## Defenseless Victims
 
