@@ -136,7 +136,7 @@ They also realized they had to do something to counter the actions taken by Mica
 
 After hearing Micah say, “To become a member of Mount Calvary one has to get in their ass in the baptismal, there’s no other way.” The CIA removed the chemical cremation from the baptismal, installed a first of its kind baptismal seat, and begin baptizing new members. 
 
-[[https://github.com/Mission23/mcbcmf/blob/base/assets/Photos/Baptism.JPG|alt=Baptism]]
+![Baptism.JPG](https://github.com/Mission23/mcbcmf/blob/main/Photos/Baptism.JPG)
 
 Upon seeing this photograph on their Facebook page, Micah almost lost his mind. “Did they even read about the Baptism of Jesus?” He asked. 
 
