@@ -9,24 +9,23 @@ Recently the world learned Tina Turner’s death, she died suddenly (without the
 Regardless of how much Micah let everyone know it wasn’t an official creation by the Creator, Turner’s death was announced. 
 
 ## Musical Artists Confirmed Killed
-* DJ Paulo (murdered, hotel)
-* Madonna (murdered, hotel)
-* Ida Corr (murdered)
-* Vandaveer & Production staff
+* DJ Paulo (murdered, impersonated, hotel)
+* Madonna (murdered, impersonated, hotel)
+* Ida Corr (murdered, hotel)
+* Vandaveer & Production staff (murdered, most made into hotels)
+* DJ Alain Jackinsky (murdered, impersonated, hotel)
+* DJ Serving Ovahness (murdered, hotel)
+* Patti Labelle (murdered, hotel)
+* Queen Latifah (murdered, hotel)
+* Martha Washington of the Weather Girls (murdered, hotel)
+* John Michael Montgomery (murdered, impersonated, hotel)
+* Inaya Day (murdered, hotel)
 
 ## Musical Artists Feared Harmed
-
-* DJ Alain Jackinsky (feared murdered, seems impersonated)
-* DJ Serving Ovahness (feared murdered)
-* Veronica (mentioned)
-* Patti Labelle (mentioned)
-* Queen Latifah (mentioned)
 * Fedde le Grand (associated with Ida Corr, talked about by Micah)
 * Sean “Puffy” Combs
 * Mase 
-* Weather Girls (Martha Washington and Izora Armstead)
+* Izora Armstead of The Weather Girls
 * Erykah Badu 
-* John Michael Montgomery
-* Inaya Day
 
 Several others have been mentioned on the @kelvinatlanta Twitter feed with #SavingInnocentLives #SavingArtistsLives 
