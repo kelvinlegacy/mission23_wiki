@@ -35,6 +35,7 @@ We are His appointed servants.  Born here--no UFO landed dropping us off.  Micah
      - Hello! - More reliable communications for everyday and emergencies.
      - Encryption that is truly encrypted.
      - Social Networks that work (See: The Greater Tragedy)
+     - Identity & Payment Systems that ease and protect.
 * Other objectives as defined by the Creator
 
 # The Great Storm
