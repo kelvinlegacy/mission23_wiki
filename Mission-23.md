@@ -9,19 +9,32 @@ In short, our mission is to restore fun to his neighborhood we humans call Earth
 We are His appointed servants.  Born here--no UFO landed dropping us off.  Micah (named by the Creator, long ago, more on that later) was born Kelvin Eugene Williams on March 23, 1977 and TomTom (to practically everyone) was born Thomas Allen Chadwell on September 23, 1978.  Both were born for their 23rd mission on the 23rd day of their birth month and both on the actual moment when day turns to night on the equinox.  The Creator says using our birthdays and birth times would correct the calendars, but also says the calendars are killing us (stress).
 
 ## Mission 23 Objectives
-* Address diseases caused by viruses.
+* Address diseases caused by viruses 
      - Eliminate a memory in all human DNA.  In both human males and females this is to address their "running configurations," however in males it's to address the issue for the next generation's "startup configuration." 
+     - Re-Understanding Disease Education Campaign - All disease is infectious in nature.  There are no hereditary diseases.
      - Single dose dietary supplement for about the cost of a gallon of milk.
 * Address conditions caused by bacterium.
      - Human kidney "upgrade."
 * Address cancers.
      - Correct a memory in all human DNA.  In both human males and females this is to address their "running configurations," however in males it's to address the issue for the next generation (startup configuration).
+     - Single dose dietary supplement for about the cost of a gallon of milk.
+     - Re-Understanding Cancer Education Campaign - Nothing causes cancer.  Certain activities can speed up cancer growth.
      - Lifestyle adjustments for less stressful lives.
-* Post-Massacre Mount Calvary Baptist Church
+* Mount Calvary Baptist Church Post-Massacre 
      - Safety & Security of all persons at the church. 
      - Establishing a memorial foundation. 
 * The Creator’s Points of Light Project
-     - To issue certificates of death for victims of the CIA whose death has not already been recorded.
+     - To issue certificates of death for victims of the CIA, et al. whose death has not already been recorded.
+* Nuclear R&R
+     - The Creator's Global Nuclear Detonation Ban
+     - Chernobyl Restoration to make safe for all living creatures.
+     - Three Mile Island Restoration to make safe for all living creatures. 
+     - Nuclear waste reclamation/recycling.
+     - Introduce better electricity production.
+* Reboot
+     - Hello! - More reliable communications for everyday and emergencies.
+     - Encryption that is truly encrypted.
+     - Social Networks that work (See: The Greater Tragedy)
 * Other objectives as defined by the Creator
 
 # The Great Storm
