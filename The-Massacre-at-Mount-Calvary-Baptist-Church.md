@@ -202,6 +202,8 @@ To write the first letter Micah visited a public library in Riverdale, GA on May
 
 The purpose of the first letter was to take control of the church, name a interim pastor to invite law enforcement in the Commonwealth of Kentucky into the church to investigate the massacre, additionally Micah wanted to ensure that no other persons visiting Mount Calvary Baptist Church would be harmed since it was apparent to him and the Creator advised him that it was still being used to capture and kill any members who were not present on the first Sunday.
 
+Micah has stated since the first letter was written, that upon receiving a DNA test he would immediately step down as pastor and reinstall Rev. Dr. Felix G. Williams, III, essentially installing himself as pastor was purely temporary.  Now that it is evident the massacre occurred, once he has removed all of CIA and government actors and activities from church grounds, he plans to rescind the letter making it null and void.  While an ordained minister, Micah never wanted to pastor a church, and only installed himself for Constitutional reasons and he was the only member of the church the Creator wanted identified.
+
 ### Correspondence
 
 The correspondence between Micah and the CIA's ran church follows, the SotC has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
