@@ -2,7 +2,7 @@ Warning: DO NOT ATTEMPT TO CONTACT MY MOTHER OR SISTER. PRAY. ASK IF THIS IS REA
 Remember if you called TELL EVERYONE YOU DID. THERE IS SAFETY IN NUMBERS. MY CONTACT INFO IS ON CONTACT PAGE!!!
 ***
 
-Conor’s Steak and Seafood is a fake restaurant that serves death. Conor’s has opened nearly everywhere either of The Servants of the Creator have lived, worked, or visited, and they have had family, friends or colleagues disappear. The facade opens up in less than an afternoon. 
+Connor’s Steak and Seafood is a fake restaurant that serves death. Conor’s has opened nearly everywhere either of The Servants of the Creator have lived, worked, or visited, and they have had family, friends or colleagues disappear. The facade opens up in less than an afternoon. 
 
 Micah’s mother, Patricia Ann Crawley Williams, received a gift certificate there. 
 
@@ -24,9 +24,9 @@ His family has not been heard from despite repeated attempts to call even engagi
 
 From what the SotC have ascertained, these gift certificates have a face value in the hundreds of dollars and the menus are very attractive. The gift certificates are sent from entities that people inherently trust, Micah’s mother received one from the FBI, but it was really from the CIA. 
 
-Conor’s in Huntsville did not have an alcohol license. The SotC checked well after Micah’s family had been murdered there. 
+Connor’s Steak and Seafood in Huntsville did not have an alcohol license. The SotC checked well after Micah’s family had been murdered there. 
 
-The scheme works well for individuals they target, and feel they need to kill to cover up the entire tragedy, who have firearms at home or live in high rise condominiums where their chance of being caught is high. 
+The scheme works well for individuals they target, and feel they need to kill to cover up the entire tragedy, who have firearms at home or live in high rise condominiums where their chance of being caught is high.  
 
 The Servants of the Creator are concerned that more gift certificates are being sent to individuals at companies which have merely provided services or support to them recently, or those who have learned of the tragedy. 
 
