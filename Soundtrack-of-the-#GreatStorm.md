@@ -10,7 +10,7 @@ Prince Rogers Nelson is related to the Rogers family of Sandy Hook, TN making hi
 # Vandaveer
 Mark Charles Heidinger who started Vandaveer is their lead male vocalist and primary songwriter. Mark was a longtime friend of Micah’s and a victim of the tragedy. 
 
-When listening to Vandaveer, especially the two albums discussed herein, the listener should know that it is one of the following talking: the Creator, Micah[[1]], Thomas, Main or a special guest. 
+When listening to Vandaveer, especially the two albums discussed herein, the listener should know that it is one of the following talking: the Creator, Micah, Thomas, Main or a special guest. 
 
 ## Divide & Conquer 
 
@@ -81,4 +81,4 @@ When listening to Vandaveer, especially the two albums discussed herein, the lis
     - His habit is halving, reducing by half, something no man ever wants halved. Done upon request of the CIA. 
 
 ***
-[^1] On “Divide & Conquer” Micah is still Kelvin until the very end, when the Creator divides him and Main. 
+On “Divide & Conquer” Micah is still Kelvin until the very end, when the Creator divides him and Main. 
