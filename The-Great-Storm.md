@@ -22,4 +22,14 @@ We do not know when we, The Servants of the Creator, will be told to resume our 
 
 ## Why is it called The Great Storm?
 
-Listen to longtime friend of Micah, Mark Charles Heidinger of Vandaveer in ["Nature of our Kind"](https://www.youtube.com/watch?v=lzoABrBtH9A).  The Massacre at Mount Calvary Baptist Church is only the tip of the iceberg, Micah keeps wondering where the true Mark Charles Heidinger, along another mother to Micah, Mrs. Heidinger, Mark's dad or brother is. All of these lives have been cut short, because of what Gilead Sciences considered a cure to HIV.  Gilead Sciences was able to bring in other major players in the pharmaceutical industry, who paid to kill of the cure for every disease known to man and everyone they deemed worthy of death.
+Listen to longtime friend of Micah, Mark Charles Heidinger of Vandaveer in [“A Mighty Leviathan of Old”](https://youtu.be/JtvW2u-7x-A?si=2vF13SAh226ptmWB), a song that talks about the massacre, and ["Nature of our Kind"](https://www.youtube.com/watch?v=lzoABrBtH9A) which tell us how many died there before the Creator decided to intervene and stop it. 
+
+_“A thousand points of light cut through the great Storm in the sky.”_
+
+The Creator was already pissed at the lives lost, the CIA had been warned, but carried on [“matter of factly”](https://youtu.be/vdzj2nkgzQw?si=G9wdF8nh3mkO1AXl). Even hearing these things, nothing seemed to stop them from killing indiscriminately anyone Micah and TomTom knew, or anyone that could get them caught. The SotC tried everything, nothing was working, the news was not getting out, and it was beginning to look like another genocide here on Earth. So began an intervention by the Creator—-an extremely rare event universally. 
+
+The Massacre at Mount Calvary Baptist Church is only the tip of the iceberg, there’s a much larger and unreported tragedy—-in typical CIA fashion, we’ve seen, there are no bodies, no investigations, just missing people. 
+
+Mark Charles Heidinger, along with all of Vandaveer and crew, are all missing. Quite possibly, Micah says “more than likely,” but the Creator confirms lives cut short, because of what Gilead Sciences considered a cure to HIV.  
+
+Gilead Sciences was able to bring in other major players in the pharmaceutical industry, who paid to kill of the cure for every disease known to man and everyone they deemed worthy of death.
