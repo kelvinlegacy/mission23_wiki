@@ -22,7 +22,7 @@ We do not know when we, The Servants of the Creator, will be told to resume our 
 
 ## Why is it called The Great Storm?
 
-Listen to longtime friend of Micah, Mark Charles Heidinger of Vandaveer in [“A Mighty Leviathan of Old”](https://youtu.be/JtvW2u-7x-A?si=2vF13SAh226ptmWB), a song that talks about the massacre, and ["Nature of our Kind"](https://www.youtube.com/watch?v=lzoABrBtH9A) which tell us how many died there before the Creator decided to intervene and stop it. 
+The SotC borrowed the term from longtime friend of Micah, Mark Charles Heidinger of Vandaveer, who introduced “rain” in the song, [“A Mighty Leviathan of Old”](https://youtu.be/JtvW2u-7x-A?si=2vF13SAh226ptmWB), a song that talks about the massacre, and in ["Nature of our Kind"](https://www.youtube.com/watch?v=lzoABrBtH9A) Mark and Rose tell us how many died there before the Creator decided to intervene and stop it. The latter song also describes Micah’s last days as Kelvin—-who used it as a countdown/checklist until he was set free from Main. 
 
 _“A thousand points of light cut through the great Storm in the sky.”_
 
