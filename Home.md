@@ -18,22 +18,12 @@ We are just gathering everything in one location for a new startup, The Mount Ca
 
 ## The Massacre at Mount Calvary Baptist Church
 
-The Creator has tasked His servants with ensuring the safety and security of everyone that visits Mount Calvary Baptist Church throughout Mission.  Additionally, the servants were given permission, if they want, to establish a memorial foundation to restore and preserve the church as close as possible to the way it was the on the day of the [massacre](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church). 
+The Creator has tasked His servants with ensuring the safety and security of everyone that visits Mount Calvary Baptist Church throughout the Mission.  Additionally, the servants were given permission, if they want, to establish a memorial foundation to restore and preserve the church as close as possible to the way it was the on the day of the [massacre](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church). 
 
-## Why GitHub?
-
-Micah, remember, was born Kelvin Eugene Williams, has a long history of “internetting.” Starting when he’d sneak into the University of Kentucky’s library and used a “borrowed” (these would be airquotes if you were in the room with Micah—only the truth permitted on this wiki per the Creator, so really big air quotes) NeXTSTEP login to IRC and stuff. 
-
-He had Facebook (@kelvinewilliams) and Twitter (@kelvinewilliams) and was even a Plusser (@kelvinewilliams), since the beginning of each, same account, all him until… It wasn’t this job. The CIA or NSA (or their “rusty guns for hire”) stole them, now he is banned anywhere he creates a new account within minutes. He was on the Internet when pictures were rare finds in the wild and video nonexistent. While he learned to read (and write) early, he was late to the GitHub party. Driven there by force by his former boss and supervisor at textPlus, also not answering calls, Donovan Sydow. Who told him repeatedly, “commit often…” 
-
-Micah gets it, he's even added some code in the newest repo--Micah understands why you would ask that very question. In short, git. The longer version, everything these days pulls from GitHub. If someone compromised his stuff again, people around the world who had already cloned it and pull regularly--whom they cannot identify--would know what happened. Micah logged into several IRC networks, the biggest nerd channels and in one message (to avoid bans) begged nerds to clone it. They did. He was starting his own Revenge of the Nerds...
-
-GitHub because of README.md and built-in repo navigation and file viewer, it makes it easy to create a "website" for this type of stuff quickly, and Micah needed that. There's added security in the fact that nearly everything pulls from GitHub. Even TomTom! The NSA didn't want to mess with GitHub, it would essentially be screwing itself. Public repos are free, Micah is broke (temporarily) and well... PUBLIC! Everybody needs to look at it, and most importantly read the correspondence.
-
-Micah created the "MCBCMF" user account and secured it with a complex password and 2FA, all while using a demo phone at the Apple store. Granted permissions to his personal account to collaborate and made to sure to delete everything (passwords and 2FA). With this two account (one forever locked on purpose) configuration, the onlu way to change the repo is by commit.  The entire world can see every single change--just in case they try to hide it once public.  Then began committing everything he had regarding his home church. He had no other choice, because he was in Apple because of a low-tech hack  that rendered him "iPhone Unavailable" and just screwed.
+Micah is already on record as saying the church will become a memorial. The SotC have already established a memorial foundation for the massacre’s victims and the church itself. 
 
 ## The Great Storm
 
-The start of #Mission23 has been delayed while the Creator storms. Immediately after [the quaking under our feet](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell) finishes we are going to work.
+The start of #Mission23 has been delayed while the Creator storms. Immediately after [the quaking under our feet](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell) finishes we are going to start the #mission23. 
 
 See [The Great Storm](https://github.com/Mission23/Mission23/wiki/The-Great-Storm).
