@@ -1,9 +1,5 @@
 [The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church) - [The Creator](https://github.com/Mission23/Mission23/wiki/The-Creator) - [The Servants of the Creator](https://github.com/Mission23/Mission23/wiki/The-Servants-of-the-Creator) - [The Great Storm](https://github.com/Mission23/Mission23/wiki/The-Great-Storm) - [#Mission23](https://github.com/Mission23/Mission23/wiki/Mission-23)
 
-[Did you feel it? That’s the bell ringing. Read more about it here.](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell). 
-
-Worried about damage? There’s absolutely none. He guarantees none—to property because of the shaking, to the entities like the CIA… The damage just started, [it gets worse in a minute](https://music.youtube.com/watch?v=5P-l8OIy8sg&si=BL19e2FCFhaP7Js1). . [#SavingArtistLives](https://github.com/Mission23/Mission23/wiki/Musicians-Feared-Harmed)
-
 # Welcome to SotC.wiki
 
 The Servants of the Creator were put to work by the Creator over six billion years ago, and are sent anywhere in His creation where life exists and its continued existence is threatened or the quality thereof could be improved.
