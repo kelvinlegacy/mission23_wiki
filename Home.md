@@ -1,4 +1,4 @@
-[The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church) - [The Creator](https://github.com/Mission23/Mission23/wiki/The-Creator) - [The Servants of the Creator](https://github.com/Mission23/Mission23/wiki/The-Servants-of-the-Creator) - [The Great Storm](https://github.com/Mission23/Mission23/wiki/The-Great-Storm) - [#Mission23](https://github.com/Mission23/Mission23/wiki/Mission-23)
+[The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church)
 
 # Welcome to SotC.wiki
 
