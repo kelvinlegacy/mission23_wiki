@@ -1,6 +1,14 @@
-# The Ringing of the Bell 
+The Creator is going to “ring the bell” very soon. The exact time is not going to be announced.  Scientists have often said that a very strong earthquake will ring Earth like a bell.  These earthquakes are intended to _shine a light_ on a horrible, unnecessary tragedy that culminated with a [massacre of a church's congregation](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church) during the height of their worship hour.  
 
-The Creator is going to “ring the bell” very soon. The exact time is not going to be announced, but the order and intensity of the bell ringing (earthquakes) is as follows:
+Regardless of how much work to get the story and reported, the federal government and federal law enforcement putting pressure on the Commonwealth of Kentucky's law enforcement to IGNORE the actions of the CIA.  The CIA continues to kill in the very place they expect to be the safest and closest to God.
+
+Obviously drunk on power, the CIA, the federal government and federal law enforcement need to sober up quickly, so the Creator, has decided to ring the bell.  It's a warning that they have forgotten who's universe, Earth, and country this landmass really is.  
+
+In addition to showing how displeased He is, the Creator is also honoring lives that have cut short in response to a set of "cures" (tasks in   #mission23) that should have let all of these lives go on for far more years than 99% of the population believe is even possible.  The way He designed and wants them to go.
+
+It also signals the start of #mission23, and says "Thanks" to everyone who has tolerated the federal government's pressure when they knew the right thing to do and they simply wanted to do it.
+
+The order and intensity of the bell ringing (earthquakes) goes as follows:
 
 ## Orr Chapel Quake
 This earthquake’s epicentre will be located  in Sandy Hook, TN (an unincorporated city near Mount Pleasant) in Maury county. 
@@ -26,35 +34,15 @@ This earthquake’s epicentre will be in Kanawha county (Hughes Creek), WV. It w
 
 This minor quake will also recognise the lives lost in Kanawha county, mostly TomTom’s friends and family, throughout the larger tragedy. 
 
-# Now What?
-The Creator hopes this will be all He has to do to stop the ongoing massacre and end the greater tragedy. 
+## Thanks!
+* Kentucky State Police.  
+     - Have you guys realized who is actually "singing" in "A Mighty Leviathan of Old" by Vandaveer starting in the second stanza???  How are those feet?  Is everyone with the torches using Wire yet?!  "YOU BETTER BE," So says the Creator.)
+* GitHub.com
+* Apple
+* Namecheap
+* ClouDNS  
+* git geeks everywhere to cloned, pulled and prayed Micah would use it better.
 
-# Earth’s Movements 
-Did you feel the Earth move under your feet? Did it seem like you were floating on a river at any point? 
 
-FACT: The planet we walk around on is NOT a rock and does NOT have a solid iron core. It is a ball of gas. 
-
-Believe it or not, our crust is floating on top of methane. Earth is about the same size as Jupiter and both are larger than you think. 
-
-Every planet in the universe is a ball of methane, and some planets never form a crust.
-
-Do you know where our crust came from? Here’s a hint, it took over a billion years for the thinnest crust to form. Earth is actually about 12-14 billion years old according to the Creator. 
-
-# Music
-The Creator says that Earth is the only planet in the universe that has music. So He likes to use it!
-
-Listen. 
-
-The tragedy is all a [“Sign of the Times.”](https://youtube.com/watch?v=8EdxM72EZ94&feature=sharea).
-, 
-And so begins the [“Purple Rain”](https://youtube.com/watch?v=S6Y1gohk5-A&feature=sharea). That means [“It’s raining men.”](https://youtube.com/watch?v=l5aZJBLAu1E&feature=sharea). He has never had to rain down men , although the 23rd mission for both of His servants, they’ve never been identified before. This is just the beginning of the “Great Storm” but it’s the [“Nature of our Kind.”](https://youtube.com/watch?v=lzoABrBtH9A&feature=sharea). 
-
-He does this because life is supposed to be fun. After all, [“Girls just want to have fun.”](https://youtube.com/watch?v=PIb6AZdTr-A&feature=sharea) We WILL get back to fun in this neighborhood called Earth. 
-
-Guys, don’t get hung up on the use of  "woman" or “girl" (it does not always mean female).  
-
-As far as Prince and Vandaveer go, it should serve as a lesson that you never know when the Creator will be using you, in the words of a great friend of mine, Bonnie Bush Ford, "Don't fight the feeling!"  
-
-Prince was Micah's cousin, Prince Rogers Nelson, same as the Sandy Hook Rogers family that Micah was born into.  
-
-Mark, who started Vandaveer, was Micah's (then Kelvin) best friend in middle school (a Jessamine county thing, 6-8th grades) and remained friends through life.
+ps.  Apple.  This Micah.  I got something you need to have, per the Creator.  I'm going to make an unexpected visit to someone there soon.  Can you please get me a replacement phone cause I'm gonna be handing you mine, and that someone is probably not going to give it back...  ;)  And TomTom wants a flip phone.  Listen to "7" by Prince.  I got the key. -m 
+ 
