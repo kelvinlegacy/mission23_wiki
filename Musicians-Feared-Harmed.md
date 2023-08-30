@@ -27,5 +27,6 @@ Regardless of how much Micah let everyone know it wasn’t an official creation 
 * Mase 
 * Izora Armstead of The Weather Girls
 * Erykah Badu 
+* Shirley Caesar and the Georgia Mass Choir, they hate Whitney’s “He’s All Over Me”… I taunt them with it. 
 
 Several others have been mentioned on the @kelvinatlanta Twitter feed with #SavingInnocentLives #SavingArtistsLives 
