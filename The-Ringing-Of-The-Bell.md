@@ -1,10 +1,10 @@
 The Creator is going to “ring the bell” very soon. The exact time is not going to be announced.  Scientists have often said that a very strong earthquake will ring Earth like a bell.  These earthquakes are intended to _shine a light_ on a horrible, unnecessary tragedy that culminated with a [massacre of a church's congregation](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church) during the height of their worship hour.  
 
-Regardless of how much work to get the story and reported, the federal government and federal law enforcement putting pressure on the Commonwealth of Kentucky's law enforcement to IGNORE the actions of the CIA.  The CIA continues to kill in the very place they expect to be the safest and closest to God.
+Regardless of how much work folks have done to get the story out and reported for your safety, the federal government and federal law enforcement agencies are still putting pressure on the Commonwealth of Kentucky's attorney and law enforcement to turn a blind eye and IGNORE the actions of the CIA. The CIA continues to kill in the very place that people go to and expect to be the safest and closest to God, who is none other than, the Creator (my pissed off boss). 
 
 Obviously drunk on power, the CIA, the federal government and federal law enforcement need to sober up quickly, so the Creator, has decided to ring the bell.  It's a warning that they have forgotten who's universe, Earth, and country this landmass really is.  
 
-In addition to showing how displeased He is, the Creator is also honoring lives that have cut short in response to a set of "cures" (tasks in   #mission23) that should have let all of these lives go on for far more years than 99% of the population believe is even possible.  The way He designed and wants them to go.
+In addition to showing how displeased He is, the Creator is also honoring lives that have cut short in response to a set of "cures" (some of objectives in #mission23) that should have let all of these lives go on for far more years than 99% of the human population believe is even possible.  The way He designed and wants them to be lived. 
 
 It also signals the start of #mission23, and says "Thanks" to everyone who has tolerated the federal government's pressure when they knew the right thing to do and they simply wanted to do it.
 
@@ -36,13 +36,14 @@ This minor quake will also recognise the lives lost in Kanawha county, mostly To
 
 ## Thanks!
 * Kentucky State Police.  
-     - Have you guys realized who is actually "singing" in "A Mighty Leviathan of Old" by Vandaveer starting in the second stanza???  How are those feet?  Is everyone with the torches using Wire yet?!  "YOU BETTER BE," So says the Creator.)
-* GitHub.com
-* Apple
-* Namecheap
-* ClouDNS  
-* git geeks everywhere to cloned, pulled and prayed Micah would use it better.
-
+     - Have you guys realized who is actually "singing" in "A Mighty Leviathan of Old" by Vandaveer starting in the second stanza???  How are those feet?  Is everyone with the torches using Wire yet?!  "YOU BETTER BE," So says the Creator.  Then add, @micah23 and say “What’s up!” But I swear to my boss, you KMART me, if I see you put on that big hat when you get out the car I’m blocking you—-it’s impossible to get away with anything with a you guy. Always so serious. Especially them Frankforters. But how did my mom once get out of a ticket on the BG?!?! Y’all like writing. Her name is spelled: Jacobsen. I think Lexington still may rename its park. I have nothing else to say about that park. I’m innocent until you prove it.)
+* GitHub.com (Don’t get jealous, y’all have practically the entire  primary landing page at #mission23 after everyone gets back right side up. It’s already there. https://GitHub.Com/mission23 — we even decided no other domain… but we might need email.)
+* Apple (Hopefully you’ll get my note about my phone. I do need a phone when I give you these phones I have… The Creator confirmed, you all will not give them back to me… I think it’s a fair trade. I like the dark blue or black, unless you got a dark purple. Like when He does the sky at night around midnight. Love that shade of purple.)
+* Namecheap (I redirected the responsibility for the redirects. That should have settled them.)
+* ClouDNS (Tell them, to look here or fuck off per the Creator. Cause well, look above. They said that the registrar couldn’t do them. You’re not the registrar. The service is not illegal, their service upon you is. I know what will fix this, escalating a ticket for extreme shaking.)
+* git geeks everywhere to cloned, pulled and prayed Micah would use it better. (Revenge of the Nerds worked. Wait till you see the biggest nerds science fair entry—you’ll feel it, nothing to read here. Yet…)
+* Wikipedia (yeah I know I said we’d be the most popular in the universe, after the shaking stops. You’re it, for now. In few seconds, I really need to check what He considers a second, you won’t be. But I’ll say it, you are the biggest. -m)
 
 ps.  Apple.  This Micah.  I got something you need to have, per the Creator.  I'm going to make an unexpected visit to someone there soon.  Can you please get me a replacement phone cause I'm gonna be handing you mine, and that someone is probably not going to give it back...  ;)  And TomTom wants a flip phone.  Listen to "7" by Prince.  I got the key. -m 
  
+pss. I ain’t been this read since I was adopted by two drag queens. 
