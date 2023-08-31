@@ -1,6 +1,6 @@
 _**Editor's Note:**  I've been working for the Creator for over six billion Earth years.  I still do not know a damn thing about Him.  Oh, I know Him, far better than everyone else on the planet except for maybe Thomas.  But I still never know what He is gonna do or say about anything.  He's predictable and not at the exact same time.  I believe this article is best if we do a Q&A with the Creator and make it a FAQ._ 
 ***
-He is the Creator (always stylized with a upper-case C) , He is often called "The Creator of the Universe," "The Alpha and the Omega," and "The Great I Am."  His two most popular names at today are, "Allah" and "God."
+He is the Creator (always stylized with a upper-case C) , He is often called "The Creator of the Universe," "The Alpha and the Omega," and "The Great I Am."  His two most popular names at today are, "Allah" and "God.” As a religion emerges, especially any monotheistic one, His name has been created and He has answered calls (prayers) to it, even “Ramen.” 
 
 A common question of, or thought about the Creator is: "Why did you create the Universe?"  The Creator says, "I had to."  He later adds, "It's way more than the total of what you all consider the universe, and that is way more than you can imagine."
 
@@ -20,3 +20,8 @@ When asked what the Creator thought of cars, He said, "Nope."
 
 ## FAQs of the Creator
 From time to time, when time permits, the Servants of the Creator will take questions from the Discussions area (or other online forum as announced) and present them to the Creator and post His responses here.
+
+1. What religion should I be?
+     - He doesn’t mind and does not support any particular religion. He does not mind if you go to church. He doesn’t mind if you never go to church. 
+     - He knows that people who regularly go to church are overall peaceful beings. Doves. 
+     - Recently the Creator made Micah hear “When the Doves Cry” by Prince with new ears. “I literally wanted to hold Him. I felt so bad for Him.” Micah furthers, “He literally had to hear all those thoughts. People, my church family, wondering why He was abandoning them. When in fact, He was literally right there providing them as much comfort as He could. He knows how to do this and it seems cold and different at first but humans always escalate. They came intending on leaving no one alive. If he stopped the chainsaws they would have went to pocketknives, if He made those disappear they would have gotten the plastic cutlery from the basement where the church ate meals. Humans always escalate.”
