@@ -34,6 +34,12 @@ This earthquake’s epicentre will be in Kanawha county (Hughes Creek), WV. It w
 
 This minor quake will also recognise the lives lost in Kanawha county, mostly TomTom’s friends and family, throughout the larger tragedy. 
 
+# Press Conferences 
+## Orr Chapel
+At high noon the day immediately following the shaking under our feet the SotC will have a press conference at the site of Orr Chapel & Sheepneck cemeteries. Located along West Sheepneck Road in Sandy Hook, TN. 
+## Mount Calvary Baptist Church 
+On the second day following the shaking, the SotC will be at Mount Calvary Baptist Church at 4742 Todds Road in Lexington, KY at high noon. 
+
 ## Thanks!
 * Kentucky State Police.  
      - Have you guys realized who is actually "singing" in "A Mighty Leviathan of Old" by Vandaveer starting in the second stanza???  How are those feet?  Is everyone with the torches using Wire yet?!  "YOU BETTER BE," So says the Creator.  Then add, @micah23 and say “What’s up!” But I swear to my boss, you KMART me, if I see you put on that big hat when you get out the car I’m blocking you—-it’s impossible to get away with anything with a you guy. Always so serious. Especially them Frankforters. But how did my mom once get out of a ticket on the BG?!?! Y’all like writing. Her name is spelled: Jacobsen. I think Lexington still may rename its park. I have nothing else to say about that park. I’m innocent until you prove it.)
