@@ -24,6 +24,5 @@ From time to time, when time permits, the Servants of the Creator will take ques
 1. What religion should I be?
      - He doesn’t mind and does not support any particular religion. He does not mind if you go to church. He doesn’t mind if you never go to church. 
      - He knows that people who regularly go to church are overall peaceful beings. Doves. 
-        - The Creator does **hear** all prayers.
-     - If your religion has defined anything like the Creator, He will hear the prayers regardless of the name. Genesis 1:1 says, “In the beginning God created the heavens and the Earth.” The Creator, started answering prayers with a to label of “God” attached, He’s done that for all Abrahamic and almost all of monotheistic religions since humans started praying. 
-     - Micah says, “Followers of Ramen, He hears y’all too. But my suggestion, come together, agree on a doctrine, stay peaceful—-be like Islam, or the Christians at Mount Calvary, and if they (the CIA or anyone) fuck with you… I’m reminded of that passage used in Pulp Fiction.”
+     - The Creator does **hear** all prayers.
+     -  “‘When the Doves Cry’ by Prince that’s not a couple, don’t think sex, think mom and child IN CHURCH. Don’t think four legged animal, think kills for money, beats his wife to a pulp animal. Oh, and that one verse repeated throughout from Pulp Ficion and stuff… Keep thinking about that verse.  And no, He’s definitely no bitch. Stop cherry picking the Bible.”
