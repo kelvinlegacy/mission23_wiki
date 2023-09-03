@@ -12,8 +12,7 @@ Prince Rogers Nelson is of the same Rogers from West Sheepneck Road in Sandy Hoo
 ![IMG_0690](https://github.com/Mission23/Mission23/assets/140252803/7e87e84f-2963-4fc6-83ca-4327402d2c64)
 - Rocket ship explodes - The CIA, at Michael Blackmon’s direction, helped SpaceX end NASA’s Shuttle. A single shot from a .22 on takeoff of Columbia doomed the craft. On Re-entry the damaged tile caused the breakup of the craft. 
 - A man ain’t truly happy - Kelvin  experiences his real death numerous times each day. Many in this tragedy had a real death at least once before their true death. True death involves reincarnation. 
-     - When the Creator, and only Him, gives Kelvin his true death, he will return right here as Micah. Kelvin’s subconscious, Main, will become conscious in the Kelvin body. #PrayToVerify
-
+     - When the Creator, and only Him, gives Kelvin his “true death,” he will return right here as Micah, in a body he has occupied before on Earth. Kelvin’s subconscious, Main, will become conscious in the Kelvin body. #PrayToVerify
      - Beheading has become the CIAs preferred method of killing. An extremely evil way to kill someone. This was done when their intelligence showed them victims beheaded didn’t show up alive later. “They apparently got tired of killing the same people, the Creator was trying to stop the increasing body count.”
 
 # Vandaveer
