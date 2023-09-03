@@ -15,7 +15,7 @@ Prince Rogers Nelson is of the same Rogers from West Sheepneck Road in Sandy Hoo
 - “Get off Alphabet Street” is something Micah expects to hear. 
 - Micah says, “One must listen to the recital of the alphabet at the end of the song.”
 - Micah recalls one grave marker with such bad English in an inscription that the company didn’t want to waste the granite. So they confirmed it by multiple employees. The customer, a family member, kept saying it’s right. Micah says “it’s so bad, it stops most people in their tracks. You have to put yourself back in Sandy Hook vernacular to see what it says.”
-- The inscription begins “God” and says something about “ His love,” Micah is intentionally vague. 
+- The inscription begins “God” and says something about “ His love,” Micah is intentionally vague. Micah will in a commit extended description place what he’s looking for before he arrives on Alphabet Street (Sheepneck Cemetery/Orr Chapel Cemetery) and after the first quake. 
 - The company, still in business, still has what has to be the most signed off order for the grave marker ever. It only exists on paper. 
 - Did you notice the missing “G”? Did you hear what is said after the letter “I.”
 - Micah knows the work order will be enough to justify his presence up on Alphabet Street. That and a family member is always present at an exhumation, which Micah must do to prove his DNA and ownership of the land. 
