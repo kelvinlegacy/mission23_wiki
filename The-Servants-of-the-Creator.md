@@ -52,7 +52,7 @@ Micah has the _Kick Booty Challenge_ for anyone claiming to be a person in the J
 * Burger King - N. Main Street (location closed), Nicholasville, KY 40356
 * K-Mart #9559 - S. Main Street (store closed), Nicholasville, KY 40356
 * McLane Cumberland - 1040 Baker Lane, Nicholasville, KY 40356
-* Christian Nursing Home (exact name forthcoming) Man O' War Blvd, Lexington, KY
+* Tanbark Nursing Home (under previous owner) Man O' War Blvd, Lexington, KY
 * Royal Manor Nursing Home, Nicholasville, KY
 * Anthem Blue Cross & Blue Shield, Aegon Center, Louisville, KY
 * International Ink Company, Gainesville, GA
