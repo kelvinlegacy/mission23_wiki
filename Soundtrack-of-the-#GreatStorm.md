@@ -48,6 +48,9 @@ When listening to Vandaveer, especially the two albums discussed herein, the lis
 * The Creator talks about what He feels is a long lost cause, Main. 
 * Main, Kelvin’s subconscious is described as “he.”
 * Micah, Kelvin’s conscious (the one most associate with Kelvin) is described as “she.” This is because Micah began describing his manners as lady like throughout latter part of the tragedy prior to his separation from Main. 
+     - Micah has no desire to be female. 
+     - With his boss, the Creator, identified he cannot be his normal self. Way more self control is required. Being a lady. 
+     — Micah has had in his presence individuals who have killed his friends, family, church family and he thought, the love of his life. Micah’s first and natural instinct was to rip their heads off. But, he generally treated them with respect and bit his tongue. Like a true lady. 
 
 ### The Sound and the Fury
 * The Creator has a few words for Main;
