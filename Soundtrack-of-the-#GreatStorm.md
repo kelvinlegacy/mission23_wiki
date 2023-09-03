@@ -75,7 +75,7 @@ When listening to Vandaveer, especially the two albums discussed herein, the lis
 
 * It starts with Main talking about the place that serves as the base for his favorite attack on Micah. 
 * Then TomTom wants to love but recent events have him beyond angry. 
-    - “Technicolor Love” is a reference to someone new, but very old, again in his life. 
+    - “Technicolor Love” is a reference to someone new, but very old, again in his life. Micah. 
 * Main talks about seeing things for the first time. He hasn’t learned to ignore the duplicate information infants do. He’s also learning about the big 5… The five senses. 
 
 ### The Great Gray
