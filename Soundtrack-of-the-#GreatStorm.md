@@ -113,5 +113,8 @@ When listening to Vandaveer, especially the two albums discussed herein, the lis
     - Shattered all the good will, what should have been a zero-known involvement by the Creator, and happy fun-filled mission is now essentially a Great War/Great Storm. 
     - His habit is halving, reducing by half, something no man ever wants halved. Done upon request of the CIA. 
 
+### Nature of our Kind
+This song leads us up to the [“shaking under our feet”](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell) or [“the ringing of the bell”](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell).
+
 ***
 On “Divide & Conquer” Micah is still Kelvin until the very end, when the Creator divides him and Main. 
