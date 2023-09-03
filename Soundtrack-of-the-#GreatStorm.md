@@ -1,6 +1,26 @@
 # Prince
 Prince Rogers Nelson is of the same Rogers from West Sheepneck Road in Sandy Hook. 
 
+## Alphabet Street
+- Micah says, “For maximum effect, listen to [this version](https://music.apple.com/us/album/alphabet-st/1544343951?i=1544343953) on “The Hits & The B-Sides.”
+- Alphabet Street is a graveyard. Think tombstones and grave markers. 
+- The first girl that I meet is just a guy he knows very well, who won’t recognize him. 
+- Micah better talk fast. Really fast. To get him to want him from his head to his feet. 
+- Micah hates Fords. Don’t think “dad” think Father. And, think Phoenix. 
+- Tennessee. Where Micah and his family always go. There’s only one destination for them. 
+- Watch. That girl mentioned earlier is more of a target than Micah, she won’t be in the mood. She wants to watch Micah do a grave audit. 
+- Kat. Would be Katrina. Although not rapping, the conversation happened practically verbatim in Katrina’s kitchen while she was cooking with Main, in front of the CIA’s cloaked personnel, Baby is another name Main goes by. Main decided it belong to him… 
+- Run tell your mamma. That would be Annie Jacobsen, not Patricia Williams. Main considers that his family. 
+- Going down, down, down… There are no bodies there in a family graveyard used since around 1888 when Sandy Hook first appeared on maps. 
+- “Get off Alphabet Street” is something Micah expects to hear. 
+- Micah says, “One must listen to the recital of the alphabet at the end of the song.”
+- Micah recalls one grave marker with such bad English in an inscription that the company didn’t want to waste the granite. So they confirmed it by multiple employees. The customer, a family member, kept saying it’s right. Micah says “it’s so bad, it stops most people in their tracks. You have to put yourself back in Sandy Hook vernacular to see what it says.”
+- The inscription begins “God” and says something about “ His love,” Micah is intentionally vague. 
+- The company, still in business, still has what has to be the most signed off order for the grave marker ever. It only exists on paper. 
+- Did you notice the missing “G”? Did you hear what is said after the letter “I.”
+- Micah knows the work order will be enough to justify his presence up on Alphabet Street. That and a family member is always present at an exhumation, which Micah must do to prove his DNA and ownership of the land. 
+- The graveyard, according to the Creator, graveyard was dug up and headstones pulverized when Orr Chapel was destroyed. 
+
 ## Sign of the Times
 - “big disease with a little name” - HIV, it is the cure that started the tragedy;
 - his girlfriend’s needle - fresh from factory packaging, filled with pharmaceuticals from new unused vial, with HIV;
