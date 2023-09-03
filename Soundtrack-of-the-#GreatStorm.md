@@ -121,10 +121,9 @@ When listening to Vandaveer, especially the two albums discussed herein, the lis
      - His trip to his old home in Tahoma Drive
      - Being shot and arrested in a setup. 
      - Being locked away and further secured while they attacked Mount Calvary Baptist Church. 
-     - Main tells about walking around for days and days, because he’s pissed off the Creator. 
-     - 1,000 points of light cut through the “Great Storm in the Sky.” The 1,000th victim fell on Saturday per the Creator. 
-
-(You’re now current. The rest is happening NOW.)
+     - (Current as of Sunday September 3, 2023)
+     - Main then tells about walking around for days and days, because he’s pissed off the Creator. 
+     - 1,000 points of light cut through the “Great Storm in the Sky.” 
 
 ***
 On “Divide & Conquer” Micah is still Kelvin until the very end, when the Creator divides him and Main. 
