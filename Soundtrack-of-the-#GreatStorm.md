@@ -114,7 +114,17 @@ When listening to Vandaveer, especially the two albums discussed herein, the lis
     - His habit is halving, reducing by half, something no man ever wants halved. Done upon request of the CIA. 
 
 ### Nature of our Kind
-This song leads us up to the [“shaking under our feet”](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell) or [“the ringing of the bell”](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell).
+* This song leads us up to the [“shaking under our feet”](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell) or [“the ringing of the bell”](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell).
+* Micah says, “It is practically a checklist and covers the past several months of his life.”
+     - Talks about a CIA agent and part time friend of his Martin. 
+     - An attempt on his life with Martin and Foot. 
+     - His trip to his old home in Tahoma Drive
+     - Being shot and arrested in a setup. 
+     - Being locked away and further secured while they attacked Mount Calvary Baptist Church. 
+     - Main tells about walking around for days and days, because he’s pissed off the Creator. 
+     - 1,000 points of light cut through the “Great Storm in the Sky.” The 1,000th victim fell on Saturday per the Creator. 
+
+(You’re now current. The rest is happening NOW.)
 
 ***
 On “Divide & Conquer” Micah is still Kelvin until the very end, when the Creator divides him and Main. 
