@@ -30,7 +30,7 @@ When listening to Vandaveer, especially the two albums discussed herein, the lis
 ### A Mighty Leviathan of Old
 
 * The song begins with Kelvin talking to Main about their opposing views regarding the larger tragedy. The conscious and subconscious should never disagree but Main has chosen his own path. 
-* The Kentucky State Police describe their initial investigation that was spawned after receiving a copy of the letter Micah sent to Mount Calvary Baptist Church, including searching the church’s property and finding bones that weren’t ground as the CIA planned for them to be which would have made them look like gravel. 
+* The Kentucky State Police in Frankfort describe their initial investigation that was spawned after receiving a call from Micah. They went to Lexington (foreign for them, the Richmond post covers Lexington) to canvass for answers, then to Mount Calvary Baptist Church. They discuss searching the church’s property and finding bones that weren’t ground as the CIA planned for them to be, which would have made the bones look like gravel. 
 * Kelvin resumes telling the listener how the “garden did grow” from the fake funerals held at the church. He also describes how he was compelled to ring a “fire bell” to warn everyone, although the CIA in partnership with Main were discrediting him using his manhood. But the Creator rained down His will causing that bell to break. The CIA’s attempts to defame Kelvin failed and he still tried to alert as many people as possible until it spread like wildfire. 
 * Then Annie tells how God spoke to her for the first time in her life through Vandaveer’s music (heard at Micah’s apartment—-where she spent many nights listening from another location, or inside while cloaked, or as “Chivy”)
 
