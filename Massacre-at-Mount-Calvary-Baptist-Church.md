@@ -1,0 +1,1 @@
+This entry has been moved to the MCBCMassacre repository. [You can read it here](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church).
