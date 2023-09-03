@@ -15,7 +15,7 @@ Both have served on Earth before, almost every time they become well known and w
 
 Since humans started keeping history, every mission and they’ve performed on Earth has made them well known. Even if not both of them, that’s because Micah is sometimes not favorably viewed, but his work is necessary. 
 
-Micah says that he is the lowest ranking human being on the planet, and that Thomas is the second-lowest. Because while they work for the Creator, they serve every other human being on the planet. “TomTom is 1,000 years older than me and the Creator’s favorite… They’re closer in age and oh so boring. I can’t imagine their conversations together.”
+Micah says that he is the lowest ranking human being on the planet, and that Thomas is the second-lowest. Because while they work for the Creator, they serve every other human being on the planet. Micah says of the pair, “TomTom is 1,000 years older than me and the Creator’s favorite… They’re closer in age and oh so boring, I can’t imagine their conversations together.” They both have been known to exhibit Earthling characteristics at times. 
 
 The tasks they are given to do have one primary focus: life. Making sure it continues and thrives. Life is always the number one priority of the Creator and His servants. 
 
