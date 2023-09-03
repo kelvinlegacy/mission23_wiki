@@ -11,9 +11,9 @@ It also signals the start of #mission23, and says "Thanks" to everyone who has t
 The order and intensity of the bell ringing (earthquakes) goes as follows:
 
 ## Orr Chapel Quake
-This earthquake’s epicentre will be located  in Sandy Hook, TN (an unincorporated city near Mount Pleasant) in Maury county. 
+This earthquake’s epicentre will be located  in Sandy Hook, TN (the former unincorporated city near, now neighborhood of Mount Pleasant) in Maury county. The Rogers family farm. 
 
-This will be a large earthquake for the CIA’s destruction of Orr Chapel ([Google Maps](https://goo.gl/maps/XMMdNdpGjU3SMMKQ8)) and the murder of it’s members. 
+This will be a large earthquake for the CIA’s destruction of Orr Chapel ([Google Maps](https://goo.gl/maps/XMMdNdpGjU3SMMKQ8)) and the murder of all of it’s identified members. 
 
 This quake also recognises Micah’s slain family and his family’s graveyard that was destroyed, both by or at the direction of the CIA. 
 
@@ -22,17 +22,17 @@ This earthquake’s epicentre will be located at Mount Calvary Baptist Church in
 
 This will be the largest quake for the massacre that occurred there.
 
-See: [The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church)
+See: [The Massacre at Mount Calvary Baptist Church](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church)
 
 ## The Micah Quake 
 This earthquake’s epicentre will be in Jessamine county, KY. It will signal when Micah (born: Kelvin Eugene Williams on March 23, 1977) has started his mission for the Creator. This will be Micah’s 23rd mission on Earth. 
 
-This minor quake will also be to recognise the lives lost in Jessamine county, mostly Micah’s friends, throughout the larger tragedy. 
+This minor quake will also be to recognize the lives lost in Jessamine county, mostly Micah’s friends, throughout the larger tragedy. 
 
 ## The Thomas Quake
 This earthquake’s epicentre will be in Kanawha county (Hughes Creek), WV. It will signal when TomTom (to practically everyone TomTom, to others Thomas, born: September 23, 1978) has started his mission for the Creator. This also is TomTom’s 23rd mission on Earth. 
 
-This minor quake will also recognise the lives lost in Kanawha county, mostly TomTom’s friends and family, throughout the larger tragedy. 
+This minor quake will also recognize the lives lost in Kanawha county, mostly TomTom’s friends and family, throughout the larger tragedy. 
 
 # Press Conferences 
 ## Orr Chapel
