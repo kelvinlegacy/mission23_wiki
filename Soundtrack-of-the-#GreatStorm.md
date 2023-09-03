@@ -65,7 +65,7 @@ When listening to Vandaveer, especially the two albums discussed herein, the lis
 ### Concerning Past + Future Conquests
 
 * It opens with Micah in DC, something the Creator told him he would have to do, testify before Congress.
-    - “D tuned kettle drum” gives a big hint about things. 
+    - “D tuned kettle drum” gives a big hint about things. Watch the drum (what’s printed on it) in “Beat, beat my heart.”
 * Then TomTom is on their private plane with the kids (something the Creator confirmed for Micah after he started listening with “new ears”). 
 * Then the newly alone Main whines about crossing the line. 
 * TomTom ponders while on vacation in the North Atlantic, he’s a Viking at heart. 
