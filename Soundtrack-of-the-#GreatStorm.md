@@ -1,11 +1,20 @@
 # Prince
-Prince Rogers Nelson is related to the Rogers family of Sandy Hook, TN making him Micah’s cousin. 
+Prince Rogers Nelson is of the same Rogers from West Sheepneck Road in Sandy Hook. 
 
 ## Sign of the Times
-* This song shared a narrative of the past several years (2018-2023) along with a look back to the beginning of the HIV/AIDS epidemic. 
-* “By chance she came across a needle and soon she did the same” … The needle was clean, just removed from its packaging. Filled with new in factory seal pharmaceuticals. The pharmaceuticals were related to blood transfusions and organ transplants. This is a secret the pharmaceutical industry never wanted anyone to know. It was not gay men who started the crisis. The first HIV positive patients got it not from blood or organs, but the drugs. #PrayToVerify 
-* The rest of the song is all true and happened. 
-* Thanks to the Creator, Atlanta saw the dawn many times when they otherwise wouldn’t have. 
+- “big disease with a little name” - HIV, it is the cure that started the tragedy;
+- his girlfriend’s needle - fresh from factory packaging, filled with pharmaceuticals from new unused vial, with HIV;
+- the 17 year old - came to Micah’s Legacy apartment. Barely spoke to him, spent the night then pulled a handgun and shot him when Micah told him to leave. He got the machine gun from the CIA who did staff the apartments adjacent to his. 
+- Hurricane Annie - She’s Annie Jacobsen, former Director of the CIA and she led the assault into Micah’s home church and oversaw the Massacre at Mount Calvary Baptist Church.
+- Every other story - Customized screensaver on Micah’s Apple TV. 
+- Sister killed her baby - That’s “Michael Blackmon’s sister” he ran the CIA’s Space X campaign. More on that below. 
+- My cousin - Cameron Richardson of Lexington, KY. He only drank alcohol until the CIA showed up. His car is parked outside Micah’s apartment most days. 
+![IMG_0690](https://github.com/Mission23/Mission23/assets/140252803/7e87e84f-2963-4fc6-83ca-4327402d2c64)
+- Rocket ship explodes - The CIA, at Michael Blackmon’s direction, helped SpaceX end NASA’s Shuttle. A single shot from a .22 on takeoff of Columbia doomed the craft. On Re-entry the damaged tile caused the breakup of the craft. 
+- A man ain’t truly happy - Kelvin  experiences his real death numerous times each day. Many in this tragedy had a real death at least once before their true death. True death involves reincarnation. 
+     - When the Creator, and only Him, gives Kelvin his true death, he will return right here as Micah. Kelvin’s subconscious, Main, will become conscious in the Kelvin body. #PrayToVerify
+
+     - Beheading has become the CIAs preferred method of killing. An extremely evil way to kill someone. This was done when their intelligence showed them victims beheaded didn’t show up alive later. “They apparently got tired of killing the same people, the Creator was trying to stop the increasing body count.”
 
 # Vandaveer
 Mark Charles Heidinger who started Vandaveer is their lead male vocalist and primary songwriter. Mark was a longtime friend of Micah’s and a victim of the tragedy. 
