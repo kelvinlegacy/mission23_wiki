@@ -22,7 +22,6 @@ Wire: [Wire profile](https://account.wire.com/user-profile/?id=1CFBE1AC-E293-40D
 ## On Social Media
 ### Servants of the Creator
 Twitter: @ASOTC23 *
-Facebook: none
 
 ### Micah
 Twitter: @kelvinewilliams, @kelvinatlanta *
