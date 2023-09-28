@@ -116,31 +116,7 @@ The initial operation is referred to by the CIA and others as “Frying Chicken.
 
 The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
 
-### Securing Micah
 
-Micah, whose government name is Kelvin Williams, was arrested for shoplifting in Riverdale, GA after shopping at the Texaco in the early morning hours of April 2nd, 2023. He was stopped while walking home. Charges for shoplifting were never filed. 
-
-Micah says, “I am the righteous hand of God, and the devil you overlooked.” Meaning he simply does what he’s told to do by the Creator. Micah does not ever want anyone to think he is God, the Creator, or wants worship. “This works best when people don’t see me coming,” he says. 
-
-He was booked into Clayton County jail, in a scene that he calls, “unique.” There were practically no other detainees to be seen in booking for a county that is rather large, has a huge police presence, and holds the world’s busiest airport, Hartsfield-Jackson Atlanta International Airport (ATL).
-
-During booking, described by Micah as a well choreographed event, he encountered the CIA’s typical harassment jokes, torment through artwork of murdered friends and family and comments, a TomTom lookalike. He received a “TB skin test” unlike any he’d ever had before that caused a small bleed. The material that escaped was so weird he tried to keep it with his property on a gauze pad sealed in a tied rubber glove for review outside of the jail. The jail refused to let him place it in an about to be sealed property bag, which wouldn’t be opened again except by him upon release.
-
-Finally, a strip search tailor-made for him. No body cavity search performed, just a front and center visual inspection by at least three CIA employees, one posing as a guard, the other two posing as inmate trustees. 
-
-After booking Micah walked with another CIA employee posing as an inmate unescorted through the entire length of a long service corridor to an housing unit at the far end. Once there, he was shown to an already overcrowded two-man cell, told to sleep on the floor, between the toilet and the bottom bunk. His body was partially exposed but head and torso under the lower bunk. 
-
-Micah spent the night in a cell, with constant visitors, with gnats and similar sized flying and crawling insects, a chemical smell he couldn’t identify or find the source of. The Creator confirmed for Micah, the arrest was just an elaborate series of hits. Micah says, they had an art installation under the bed, but could never really understand what it was depicting. 
-
-Shortly before noon, Micah estimates, he was rushed out of Clayton County, encountering not a single true inmate through the entire process and handed over to a waiting DeKalb County Sheriff’s Deputy. After being placed in his SUV, Micah started the long ride to DeKalb County Detention Center. 
-
-While the Deputy appeared to verify the warrant, Micah began enduring a sustained attack from either cloaked individuals, whom he could not see or from outside and/or above the vehicle. Micah seen and felt numerous lasers. The lasers are not for pointing, but killing. Micah has experienced them before beginning in the Des Moines airport, where he was hit in the heart by what appeared to be a passing traveler. 
-
-![IMG_0228](https://github.com/Mission23/Mission23/assets/140252803/bc3e2ba6-6187-433f-9496-3ff58153cdfe)
-
-After arriving at the DeKalb County Detention Center, Micah asked the Deputy if he could use his mobile phone while still seated in the car.  He sent out a tweet and contacted Tracy Thompson of Elizabeth Foundation, one of the program managers who had assisted him while homeless with obtaining his free hotel room at the Motel 6 in Decatur and his rent-free for a year apartment at Legacy at Riverdale, to let her know that he was arrested and his dog was locked in his apartment.
-
-According to the Creator, shortly after Micah was inside the detention center, Micah's program manager, Tracy, notified Jacobsen that Micah was in custody and secure.  That is when Jacobsen launched the attack, by sending a message using TextNow to the personnel waiting outside. 
 
 ## The Ongoing Massacre 
 
