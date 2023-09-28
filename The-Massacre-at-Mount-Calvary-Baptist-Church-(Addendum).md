@@ -1,6 +1,8 @@
 ## Mitigating Micah
+### The Frying Chicken Operation
+According to the Creator, the CIA identified Micah as a potential threat to the massacre operation citing that he routinely warns individuals that he has learned may be active targets of the CIA in their attempts to eliminate all of his friends and family and decided that they must mitigate him prior to pursuing the operation and given he may possibly be alerted to the the plan.
 
-Micah, whose government name is Kelvin Williams, was arrested for shoplifting in Riverdale, GA after shopping at the Texaco in the early morning hours of April 2nd, 2023. He was stopped while walking home. Charges for shoplifting were never filed. 
+Micah, who was born Kelvin Williams, was arrested for shoplifting in Riverdale (Clayton County), GA after shopping at the Texaco in the early morning hours of April 2nd, 2023. He was stopped while walking home. Charges for shoplifting were never filed. 
 
 Micah says, “I am the righteous hand of God, and the devil you overlooked.” Meaning he simply does what he’s told to do by the Creator. Micah does not ever want anyone to think he is God, the Creator, or wants worship. “This works best when people don’t see me coming,” he says. 
 
@@ -23,6 +25,10 @@ While the Deputy appeared to verify the warrant, Micah began enduring a sustaine
 After arriving at the DeKalb County Detention Center, Micah asked the Deputy if he could use his mobile phone while still seated in the car.  He sent out a tweet and contacted Tracy Thompson of Elizabeth Foundation, one of the program managers who had assisted him while homeless with obtaining his free hotel room at the Motel 6 in Decatur and his rent-free for a year apartment at Legacy at Riverdale, to let her know that he was arrested and his dog was locked in his apartment.
 
 According to the Creator, shortly after Micah was inside the detention center, Micah's program manager, Tracy, notified Jacobsen that Micah was in custody and secure.  That is when Jacobsen launched the attack, by sending a message using TextNow to the personnel waiting outside.
+
+### Grilling Chicken Operations
+Micah would have personnel of the CIA stop by as if they were friends for a visit, but refuse to leave and monitor all of his activities and limit his interactions with anyone apparently not on an approved guest list.
+
 
 ## Unwritten
 
