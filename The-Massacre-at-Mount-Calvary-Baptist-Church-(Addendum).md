@@ -29,6 +29,14 @@ According to the Creator, shortly after Micah was inside the detention center, M
 ### Grilling Chicken Operations
 Micah would have personnel of the CIA stop by as if they were friends for a visit, but refuse to leave and monitor all of his activities and limit his interactions with anyone apparently not on an approved guest list.
 
+### September 13th, 2023
+In the early morning hours of September 13, 2023 Micah requested that "Danny" leave his apartment.  A week earlier, Micah filed for a Temporary Protective Order against Danny and his associates whom the Creator says are all CIA personnel.  According to the posted policies of Clayton County Superior Court, any request that meets the requirements (which Micah's TPO Application did) will be completed and served the same day if it is received by 3p.m..  On the first day Micah's was rejected for not being signed, it was fixed and resubmitted with a request for a call back if there were any other problems and no call or email was received.  
+
+Several days after the amended filing, Micah was awaken by Danny banging on his door.  He told him to go away and Danny then proceeded to bust his living room window and climb in ([YouTube Video of Break In](https://www.youtube.com/watch?v=Bp3FW9r3O7w)).  
+
+Micah who had become fed up by Danny's installation of gruesome artwork depicting his friends and family in their final moments, hearing Danny's boasting of raping and killing of his cousin, and Danny's endless stream of "friends" requested again that Danny leave.  Danny pretended to sleep, but Micah knew he was awake.  Micah splashed some water on Danny's face to rouse him from his false slumber and Danny got up and left the room.  As Micah repeated his requests for Danny to leave, Danny re-entered the room carrying a large stick with two butcher knives attached to one end.
+
+Danny proceeded to swing the stick in Micah's direction at one point hitting Micah and breaking the stick.  Micah left the apartment around 6am and again contacted the Clayton County Superior Court around 9:45am regarding this requested Temporary Protective Order.  Court staff did not return his calls or e-mails.  
 
 ## Unwritten
 
