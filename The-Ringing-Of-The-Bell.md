@@ -41,3 +41,11 @@ These are tentative.  Conditions on the ground are very fluid--and I don't mean 
 At high noon the day immediately following the shaking under our feet the SotC will have a press conference at the site of Orr Chapel & Sheepneck cemeteries. Located along West Sheepneck Road in Sandy Hook, TN. 
 ## Mount Calvary Baptist Church 
 On the second day following the shaking, the SotC will be at Mount Calvary Baptist Church at 4742 Todds Road in Lexington, KY at high noon. 
+
+# Suggested Listening
+## The Sound and the Fury
+By Vandaveer - [Listen on YouTube Music](https://music.youtube.com/watch?v=OpLeRY6NIhA&si=cmrf2QAr0f544FMZ)
+
+## 1999
+By Prince
+[Listen on YouTube Music](https://music.youtube.com/watch?v=rblt2EtFfC4&si=yghTVWBWzrB5KjD7)
