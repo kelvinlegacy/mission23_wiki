@@ -32,11 +32,21 @@ Micah would have personnel of the CIA stop by as if they were friends for a visi
 ### September 13th, 2023
 In the early morning hours of September 13, 2023 Micah requested that "Danny" leave his apartment.  A week earlier, Micah filed for a Temporary Protective Order against Danny and his associates whom the Creator says are all CIA personnel.  According to the posted policies of Clayton County Superior Court, any request that meets the requirements (which Micah's TPO Application did) will be completed and served the same day if it is received by 3p.m..  On the first day Micah's was rejected for not being signed, it was fixed and resubmitted with a request for a call back if there were any other problems and no call or email was received.  
 
-Several days after the amended filing, Micah was awaken by Danny banging on his door.  He told him to go away and Danny then proceeded to bust his living room window and climb in ([YouTube Video of Break In](https://www.youtube.com/watch?v=Bp3FW9r3O7w)).  
+Several days after the amended filing, Micah was awaken by Danny banging on his door.  He told him to go away and Danny then proceeded to bust his living room window and climb in ([YouTube Video of Break In](https://www.youtube.com/watch?v=Bp3FW9r3O7w)).  Micah called 911, the police told him that he has a right to break into his apartment, Micah told them repeatedly he was not a resident.  The police made several unprofessional comments, laughed and left.
 
 Micah who had become fed up by Danny's installation of gruesome artwork depicting his friends and family in their final moments, hearing Danny's boasting of raping and killing of his cousin, and Danny's endless stream of "friends" requested again that Danny leave.  Danny pretended to sleep, but Micah knew he was awake.  Micah splashed some water on Danny's face to rouse him from his false slumber and Danny got up and left the room.  As Micah repeated his requests for Danny to leave, Danny re-entered the room carrying a large stick with two butcher knives attached to one end.
 
 Danny proceeded to swing the stick in Micah's direction at one point hitting Micah and breaking the stick.  Micah left the apartment around 6am and again contacted the Clayton County Superior Court around 9:45am regarding this requested Temporary Protective Order.  Court staff did not return his calls or e-mails.  
+
+After returning home, Micah was awaken from a nap by a large police presence outside his apartment around 8pm.  The police came to the door, and were overheard discussing that the door to Micah's apartment appeared to have been recently kicked in.  The officer asked Micah to step outside.  Micah noted at least six police vehicles, and a fire truck.  The fire personnel were checking Danny.  The police officer first asked about a missing cell phone of Danny's, then asked Micah if he had splashed water on Danny.  Micah told him about the earlier event and admitted to trying to wake Danny with a splash of water.  Micah made sure to say that Danny was not harmed and proceeded to tell him about the incident with the knives and how he was trying in vain to get a protective order.  
+
+The police arrested Micah for Simple Battery.  Micah was taken to Clayton County, during booking an incident report was read to Micah stating it was a "red chemical substance."  Micah was denied bail, although he had an audio recording of the arresting officer which he offered to play for the booking officer.  
+
+Micah noted that Clayton County detention center was devoid of any obvious arrests of anyone who appeared to have broken even the most typical arrestable offense.  The holding cells were full of CIA personnel and "local contractors."  Micah started as he did in April a non-stop attempt on his life by numerous "inmates."  
+
+Micah was given a $2,400 bail, but everyone seemed to know he was in for the long haul.  His next court date was October 10th.  Micah has zero people whom he could call, and all of Clayton County's law enforcement apparently knew it.  Micah does know, that several whom he was interacted with, including his arresting officer, helped remove the final people in his life, his church family at Mount Calvary Baptist Church.
+
+Micah settled in to cell 7306.  He realized the next day, he was in the exact same unit and cell as his previous arrest for "Shoplifting."
 
 ## Unwritten
 
