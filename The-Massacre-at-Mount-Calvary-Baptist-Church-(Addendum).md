@@ -48,6 +48,11 @@ Micah was given a $2,400 bail, but everyone seemed to know he was in for the lon
 
 Micah settled in to cell 7306.  He realized the next day, he was in the exact same unit and cell as his previous arrest for "Shoplifting."
 
+### September 28 - Micah MUST BE MURDERED 
+Just a snapshot of what the CIA looks like when attempting to kill me in a public library. The security guard knows what’s going on. 
+![IMG_0003](https://github.com/mission23/mission23/assets/140252803/fed53e48-84cf-467c-b924-28333cc58b79)
+![IMG_0004](https://github.com/mission23/mission23/assets/140252803/f37ce2df-09f6-488d-80f9-423436978a8d)
+
 ## Unwritten
 
 Everything below is incoming and will become part of this entry or related entries.
@@ -99,3 +104,5 @@ Everything below is incoming and will become part of this entry or related entri
 ![IMG_0231](https://github.com/Mission23/MCBCMassacre/assets/140252803/ad6e07cd-5600-4087-bc98-a18122f77a59)
 ![IMG_0226](https://github.com/Mission23/MCBCMassacre/assets/140252803/d435ed71-651c-4302-aaa1-584699977eef)
 ![IMG_0740](https://github.com/Mission23/MCBCMassacre/assets/140252803/1ca7e0a0-0ddf-4186-b078-10bc71397a52)
+
+
