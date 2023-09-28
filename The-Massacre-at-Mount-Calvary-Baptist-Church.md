@@ -46,6 +46,14 @@ Micah and TomTom both say, “We got laundry to do. Why are none of you doing it
 
 ## GATech
 Anyone, especially students, on campus needs to see [this entry](https://github.com/Mission23/MCBCMassacre/wiki/Georgia-Tech).
+
+# Guidance
+## Supporting Documentation 
+This is a summary of events. All of the correspondence will help you understand the gravity of this situation. Please read any link herein, most will take you to a pdf/image of correspondence. 
+
+## Understanding Church & State
+If you are not familiar with the inner workings of a church, or this country’s separation of church and state contact someone you trust to help you understand it better. Any member of the clergy regardless of faith in the USA should be able to help you understand how bad of a situation it is when they read the letters. 
+
 ***
  
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
@@ -55,6 +63,9 @@ A small church on Todds Road in remote Lexington, KY is the site of the largest 
 Additional victims of the massacre come from the apparent coverup, they are the people who report other victims as missing who have been previously killed. They are identified, located and murdered after filing a missing persons report, or in some cases simply mentioning another victim’s name. 
 
 More than 125 men, women and children were killed that first Sunday, and over 1,000 lives in total have been lost in the ongoing massacre turned genocide. 
+
+## Urgent Notice
+Micah has written an open letter to the CIA for using lookalikes of him and his slain family members to further these attacks. This is required reading to understand how far the government will go to cover this up. Please forgive the language and the rushed nature of the letter. [Click here to read it](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary). 
 
 ## "Where The Distance Makes The Difference"
 
