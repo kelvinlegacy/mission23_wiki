@@ -320,6 +320,10 @@ The Creator says, “Much like _’Able Danger’_ was the blueprint for 9/11.  
 ![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f)
 Jacobsen. 
 
+## Addendum
+
+Additional information including material that is related to the massacre but not yet part of this or another article can be found in this [addendum](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church-(Addendum)). 
+
 ## Warning 
 
 The Servants of the Creator (SotC) recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the church on Facebook as views may be tracked and reported to the CIA.
