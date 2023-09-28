@@ -1,6 +1,6 @@
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
 
-The article begins after the warnings. 
+The article begins after the warnings. There are a few, but they are necessary!
 ***
 # Warnings
 ## In-Person Contact
@@ -53,6 +53,9 @@ This is a summary of events. All of the correspondence will help you understand 
 
 ## Understanding Church & State
 If you are not familiar with the inner workings of a church, or this country’s separation of church and state contact someone you trust to help you understand it better. Any member of the clergy regardless of faith in the USA should be able to help you understand how bad of a situation it is when they read the letters. 
+
+## Not for minors
+There are some details provided herein, any more that are being withheld, that are not for minors (and even some adults) to read. They are terrifying and scary. Parents please hold your children closely and assure them that the Creator is going to make sure that these “bad guys” are stopped quickly, and for you adults that are mad or upset know that we need your help. You can’t read this and not act—-contacting your representatives is the first stop. There’s more, way more about this and other issues the federal government doesn’t want you to know about the “human trafficking” problem. 
 
 ***
  
