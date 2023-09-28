@@ -1,13 +1,8 @@
-[Return to the #Mission23 hub](https://github.com/Mission23/) - [#Mission23 Wiki](https://github.com/Mission23/Mission23/wiki/)
-***
-
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
 
 The article begins after the warnings. 
 ***
 # Warnings
-## GATech
-Anyone, especially students, on campus needs to see [this entry](https://github.com/Mission23/MCBCMassacre/wiki/Georgia-Tech).
 ## In-Person Contact
 The SotC advise you to not call (by phone) or go near the church for any reason until you have heard about the Mount Calvary Baptist Church Memorial Foundation and the SotC taking control of the church building and its surrounding property on the broadcast evening world news AND read about it here, not a moment before. Failure to take heed of this warning may result in your death.
 
@@ -48,6 +43,9 @@ Remember: No one on Earth can make you feel anything. No one.
 
 For example: 
 Micah and TomTom both say, “We got laundry to do. Why are none of you doing it??? A lot of truly dirty laundry. Just sitting there. We tell folks, maybe even try to guilt them with a tear. ITS STILL SITTING THERE. Why?”
+
+## GATech
+Anyone, especially students, on campus needs to see [this entry](https://github.com/Mission23/MCBCMassacre/wiki/Georgia-Tech).
 ***
  
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
@@ -56,7 +54,7 @@ A small church on Todds Road in remote Lexington, KY is the site of the largest 
 
 Additional victims of the massacre come from the apparent coverup, they are the people who report other victims as missing who have been previously killed. They are identified, located and murdered after filing a missing persons report, or in some cases simply mentioning another victim’s name. 
 
-More than 125 men, women and children were killed that Sunday, and over [1,000 lives](https://github.com/Mission23/Mission23/wiki/Soundtrack-of-the-%23GreatStorm#nature-of-our-kind) in total have been killed. 
+More than 125 men, women and children were killed that first Sunday, and over 1,000 lives in total have been lost in the ongoing massacre turned genocide. 
 
 ## "Where The Distance Makes The Difference"
 
@@ -70,17 +68,13 @@ The city of Lexington spans every square inch of Fayette county. The location of
 
 ## The First Sunday
 
-The massacre started on Sunday April 2, 2023 when men and women of the CIA, led by Annie Jacobsen, executed an attack based on tactics written by Jacobsen in her book, _"Surprise, Kill, Vanish."_  A review of the book can be found on the CIA's [website](https://www.cia.gov/static/Review-Surprise-Kill-Vanish.pdf), a copy is stored in our repository and can be viewed [here](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20180830_cia_review_surprise_kill_vanish.pdf).  
+The massacre started on Sunday April 2, 2023 when men and women of the CIA, led by Annie Jacobsen, executed an attack on the congregation that was attending Sunday morning worship services. 
 
-The Creator says, “Much like _’Able Danger’_ was the blueprint for 9/11.  _’Surprise, Kill, Vanish’_ was the blueprint used by the CIA for the initial attach Mount Calvary Baptist Church on the first Sunday.”
-
-![IMG_0330](https://github.com/Mission23/MCBCMassacre/assets/140252803/348262e4-5f2d-4055-8157-9d12285435e4)
 
 
 According to the Creator, Annie Jacobsen along with "Michael Blackmon" attended morning services and shortly before the end of the morning session, Jacobsen sent a message to a team waiting outside to start the attack.
 
-![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f)
-Jacobsen. 
+
 
 ## Anatomy of the Attack
 
@@ -340,6 +334,16 @@ The correspondence between Micah and the CIA's ran church follows, the SotC has 
 ### Cease & Desist from Attorney for "Church"
 ![doc_griffin_cease_desist](https://github.com/Mission23/MCBCMassacre/assets/140252803/24148a11-c839-4a1e-9567-ddced806a0f8)
 
+## Surprise, Kill, Vanish
+The initial massacre was based on tactics written by Jacobsen in her book, _"Surprise, Kill, Vanish."_  A review of the book can be found on the CIA's [website](https://www.cia.gov/static/Review-Surprise-Kill-Vanish.pdf), a copy is stored in our repository and can be viewed [here](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20180830_cia_review_surprise_kill_vanish.pdf).  
+
+The Creator says, “Much like _’Able Danger’_ was the blueprint for 9/11.  _’Surprise, Kill, Vanish’_ was the blueprint used by the CIA for the initial attach Mount Calvary Baptist Church on the first Sunday.”
+
+![IMG_0330](https://github.com/Mission23/MCBCMassacre/assets/140252803/348262e4-5f2d-4055-8157-9d12285435e4)
+
+![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f)
+Jacobsen. 
+
 ## Warning 
 
 The Servants of the Creator (SotC) recommend that no one visit the church or church property until we announce that we have taken control of it. Furthermore, we recommend individuals do not view anything from the church on Facebook as views may be tracked and reported to the CIA.
@@ -361,20 +365,8 @@ Once the SotC announce they have taken control of the property it will be safe t
      - Micah sees this daily at his apartment at Legacy at Riverdale.
 
 ***  
-_**Editor’s Notes:** The narrative you have read is true. If you do not believe it, you need to pray to ask if it’s true if you still don’t believe it, call the Kentucky State Police and asked them  the average number of people who typically go missing a month in Kentucky and then ask him how many African-Americans went missing Sunday, April 2, 2023 from the Lexington area._
 
-_The City of Lexington and Lexington-Fayette Urban County Government should not be blamed or called.  They did not know about the first day of the massacre, their PSAP (Public Safety Answering Point / 911 Call Center) never received a call, all calls were diverted using temporary cell towers.  When Micah wrote his letter to the church, he copied law enforcement and the media.  The CIA wasted no time and were faster than e-mail, they told recipients that he was crazy and suffering from delusions, etc to make the letter really seem like the product of someone having a paranoid fantasy.  Please don't call them._
 
-[[1]] Suprise, Kill, Vanish: https://www.cia.gov/static/Review-Surprise-Kill-Vanish.pdf
-
-***
-## Contact Information 
-
-If you want to contact Micah you must use Wire. [Click here for his profile and info on how to download Wire.](https://account.wire.com/user-profile/?id=1CFBE1AC-E293-40D5-A38F-1E165D3DE50D) 
-
-The Creator forbids the use of any other secret messaging apps. Micah says, "If you request the SotC to use Signal, Telegram or WhatsApp for their respective encryption, we will simply recommend using your phone's native SMS app, or just having coffee in an NSA break room with the NSA staffer at the table with us--in the end, its all the same."
-
-***
 ## Unwritten
 
 Everything below is incoming and will become part of this entry or related entries.
