@@ -1,7 +1,7 @@
 ## Mitigating Micah
-### The Frying Chicken Operation
 According to the Creator, the CIA identified Micah as a potential threat to the massacre operation citing that he routinely warns individuals that he has learned may be active targets of the CIA in their attempts to eliminate all of his friends and family and decided that they must mitigate him prior to pursuing the operation and given he may possibly be alerted to the the plan.
 
+### The Frying Chicken Operation
 Micah, who was born Kelvin Williams, was arrested for shoplifting in Riverdale (Clayton County), GA after shopping at the Texaco in the early morning hours of April 2nd, 2023. He was stopped while walking home. Charges for shoplifting were never filed. 
 
 Micah says, “I am the righteous hand of God, and the devil you overlooked.” Meaning he simply does what he’s told to do by the Creator. Micah does not ever want anyone to think he is God, the Creator, or wants worship. “This works best when people don’t see me coming,” he says. 
