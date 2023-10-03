@@ -8,8 +8,19 @@ Micah spent Friday night in midtown. He went home, changed clothes and left due 
 ## The Dog Park
 ## The Chilean Affair 
 ## The Dimwitted Soul
+![IMG_0022](https://github.com/mission23/mission23/assets/140252803/99b5bd47-3605-42fe-b419-36f77f7e9959)
+
 ## An Afternoon in Tokyo
+The Dimwitted Soul invited Micah to Tokyo Valentino and offered to pay his entry fee. Micah agreed to meet him there a short time later at the Tokyo Valentino location on Cheshire Bridge Road in Atlanta, GA. 
+
+When Matt arrived, Micah joined up with him and entered Tokyo. Matt paid for both of them. 
+
+Micah noticed the crowd at Tokyo Valentino was odd at best. Everyone appeared to be “company” and there was none of the activity expected at Tokyo was occurring. 
+
+Micah had several attempts on his life made and ended up falling asleep in a private room. 
+
 ## The Heist
+Micah stepped outside for a cigarette 
 ### Erasure and Lockdown
 ## You’re not Albert Adhoot!
 ## The Assault
