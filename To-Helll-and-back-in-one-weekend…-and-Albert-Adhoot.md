@@ -24,6 +24,18 @@ The hitman supplied some drugs and the two hung out in midtown for a while befor
 ## The Dimwitted Soul
 ![IMG_0022](https://github.com/mission23/mission23/assets/140252803/99b5bd47-3605-42fe-b419-36f77f7e9959)
 
+Micah arrived at Cheshire Motor Inn around 6:30am. He entered the room to find someone apparently suffering from speed induced paranoia. 
+
+Micah learned that Matt, a recreational crack cocaine user, had been provided a large amount of methamphetamine by the CIA. However, was only shown the basics of smoking meth. 
+
+Micah learned a long time ago the dangers of giving meth to a crack or cocaine user without educating them as to the experience they should expect. Without that knowledge, cocaine users will continue ingesting more and more searching for a euphoria that will not come. They are “chasing a dragon.”
+
+Matt had apparently been chasing the dragon for days and as a result had ingested too much meth, had no sleep, and had become overly paranoid. He insisted on turning off every light in the hotel room and hiding in the bathroom. 
+
+Matt continued to smoke. He was also apparently trying to calm his nerves with meth. The situation was horrible. Micah tried repeatedly to calm him, let him know all was OK and to just relax. 
+
+Matt consistently worried about cameras, people, and cars in the parking lot. Despite assurances from Micah that he had nothing to worry about, after all he was staying in the “back building” (the one furthest from the road) at Cheshire Motor Inn, the group of rooms that is rented to the professional partying people. One requests to stay in that building given the party atmosphere. The movies produced at Cheshire Motor Inn do not show this building. 
+
 ## An Afternoon in Tokyo
 The Dimwitted Soul invited Micah to Tokyo Valentino and offered to pay his entry fee. Micah agreed to meet him there a short time later at the Tokyo Valentino location on Cheshire Bridge Road in Atlanta, GA. 
 
