@@ -3,10 +3,22 @@ The best way to give a chronological order of events would be from Micah’s tex
 ![IMG_0021](https://github.com/mission23/mission23/assets/140252803/a53edde7-2134-417d-8a58-d531c259600a)
 
 # Friday Night
-
 Micah spent Friday night in midtown. He went home, changed clothes and left due to the CIA personnel in his apartment that he cannot have removed. The local police refuse to do anything about “Danny” and company despite numerous attempts and the fact that they know he’s attempted murder several times. [Micah even posted a video of Danny breaking a window to get into his apartment](https://www.youtube.com/watch?v=Bp3FW9r3O7w), when the police were called they said he could do such.
+
 ## The Dog Park
+While walking through midtown a guy yelled at Micah from a dog park attached to a condo. He asked Micah for a lighter, then asked if he got high. 
+
+Micah sat down with him. 
+
+Someone then called from an adjoining garage. It became apparent that this was just another hit. 
+
+Micah left a few moments later, and while sitting in a parking garage using his phone a guy came up to Micah and struck up a conversation. Micah recognized the accent as the guy who was yelling from the garage earlier.  
+
 ## The Chilean Affair 
+Micah hung out with the new acquaintance who was a hit man from Chile and Micah thought was very attractive. 
+
+The hitman supplied some drugs and the two hung out in midtown for a while before Micah went to his next CIA scheduled social interaction. 
+
 ## The Dimwitted Soul
 ![IMG_0022](https://github.com/mission23/mission23/assets/140252803/99b5bd47-3605-42fe-b419-36f77f7e9959)
 
@@ -57,7 +69,9 @@ Micah then checked all of his logins and thanked the Creator for the “switchar
 
 “The Creator is not playing around about Mount Calvary Baptist Church, and He doesn’t mind strengthening networks, servers and services at a Apple or GitHub. So Him making someone grab the wrong phone from their pocket to give me back my phone is a nobrainer. We ain’t scared of no street fight. We can handle bar brawls too,” said Micah. 
 
-“After all TomTom does say, ‘I saw an angel coming down into me, in her hand she holds the very key,’ the Creator has to keep his lyrics true (although attributed to Prince) … The CIA by and through Matt’s theft guaranteed there’s now only one key, a PassKey on my iPhone.”
+Micah adds, “After all TomTom does say, ‘I saw an angel coming down into me, in her hand she holds the very key,’ the Creator has to keep his lyrics true (although attributed to Prince in 7) … The CIA by and through Matt’s theft guaranteed there’s now only one key, a PassKey on my iPhone.”
+
+Matt would never meet with Micah. He claimed to be meeting his mother and going to Baltimore. 
 
 ## The Morning After
 The morning after Micah’s backpack was stolen, his phone reported its location at an apartment complex in Bynam, MS. 
