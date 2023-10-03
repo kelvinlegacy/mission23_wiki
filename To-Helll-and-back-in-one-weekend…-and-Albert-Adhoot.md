@@ -1,3 +1,5 @@
+If you’re wondering about the title of this article. Listen to the “Nature of our Kind” by Vandaveer. 
+
 The best way to give a chronological order of events would be from Micah’s text messages, however, most of his recent exchanges have been deleted. Micah never deletes anything other than automated messages. 
 
 ![IMG_0021](https://github.com/mission23/mission23/assets/140252803/a53edde7-2134-417d-8a58-d531c259600a)
