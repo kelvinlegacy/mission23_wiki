@@ -39,6 +39,26 @@ Upon opening the message with Albert Adhoot, Micah seen the messages he exchange
 Micah has not spoken with Adhoot in several years.
 
 ## The Assault
+A couple hours later, Micah was was standing next to the ATM at Publix at the corner of LaVista and Cheshire Bridge Road using his telephone. 
+
+An old acquaintance walked up to him and grabbed his telephone from his hand. 
+
+He began screaming that he was keeping the phone because Micah owed him a lot of money. Micah countered and asked him what amounts and for what. 
+
+The individual struck Micah in the throat, the type of strike one learns to crush the trachea. 
+
+Micah still demanded his phone back. 
+
+Micah was struck on the side of the head and his eardrum was ruptured. 
+
+The individual then pulled out an identical iPhone and handed it to Micah. 
+
+Micah then checked all of his logins and thanked the Creator for the “switcharoo.” The entire encounter was to make a scene then give back a different but identical phone. 
+
+“The Creator is not playing around about Mount Calvary Baptist Church, and He doesn’t mind strengthening networks, servers and services at a Apple or GitHub. So Him making someone grab the wrong phone from their pocket to give me back my phone is a nobrainer. We ain’t scared of no street fight. We can handle bar brawls too,” said Micah. 
+
+“After all TomTom does say, ‘I saw an angel coming down into me, in her hand she holds the very key,’ the Creator has to keep his lyrics true (although attributed to Prince) … The CIA by and through Matt’s theft guaranteed there’s now only one key, a PassKey on my iPhone.”
+
 ## The Morning After
 The morning after Micah’s backpack was stolen, his phone reported its location at an apartment complex in Bynam, MS. 
 
