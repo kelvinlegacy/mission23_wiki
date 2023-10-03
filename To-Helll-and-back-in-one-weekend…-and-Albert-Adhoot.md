@@ -20,9 +20,24 @@ Micah noticed the crowd at Tokyo Valentino was odd at best. Everyone appeared to
 Micah had several attempts on his life made and ended up falling asleep in a private room. 
 
 ## The Heist
-Micah stepped outside for a cigarette 
+Micah stepped outside for a cigarette, and found Matt leaving in his car. Micah attempted to get his backpack but Matt insisted that he meet him in front of Tokyo so he could pull over and retrieve it from the tree trunk. 
+
+Micah walked around to the front of Tokyo and Matt was nowhere to be found. 
+
 ### Erasure and Lockdown
+Following the new SotC protocol, Micah’s backup iPhone was immediately erased using iCloud. 
+
+The Creator instructed Micah to change his iCloud password also, and upon doing so to log out all other devices. Micah did as instructed. 
+
 ## You’re not Albert Adhoot!
+Micah attempted to contact Matt but couldn’t find his number under recent calls. He became alarmed when he noticed someone had apparently used his phone to contact an old business associate, Albert Adhoot. 
+
+Micah went to his text messages and could not find any messages with the number he’d been communicating with Matt on. He also found a recent text messages with Albert Adhoot. 
+
+Upon opening the message with Albert Adhoot, Micah seen the messages he exchanged with Matt. He checked the number and found the 610 number he had been communicating with was actually the number he had on Albert Adhoot’s contact. 
+
+Micah has not spoken with Adhoot in several years.
+
 ## The Assault
 ## The Morning After
 The morning after Micah’s backpack was stolen, his phone reported its location at an apartment complex in Bynam, MS. 
