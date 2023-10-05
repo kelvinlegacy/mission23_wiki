@@ -32,5 +32,6 @@ Some of the apps and services currently used to identify and those who would mak
 * Telegram
 * WhatsApp
 * Signal
+* Zoom
 * Facebook
 * Twitter
