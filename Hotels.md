@@ -23,3 +23,14 @@ Usually the CIA will name a manager for each hotel in this line and their legal 
 The Attendant line of hotels are created from individuals whose professional jobs provide the CIA with positions in industries they’d like more influence over and enable them to place unlicensed or unskilled personnel there. 
 
 Yet another national security disaster by the CIA.
+
+## Future Hotels
+Future hotels are selected and chosen in a variety of ways. As of late the CIA has been using social media, apps with a social component (ie. Invite friends for a reward, and communications apps. 
+
+Some of the apps and services currently used to identify and those who would make a good hotel are:
+
+* Telegram
+* WhatsApp
+* Signal
+* Facebook
+* Twitter
