@@ -43,9 +43,10 @@ Here’s Karrington and a pregnant Katrina, also at Connor’s. Behind them of c
 
 I do have to ask… Where is the model Karrington, Katrina’s middle daughter, or her infant? Dear CIA, Your model looks a big larger than her last photo in life at your fake restaurant Connor’s. 
 
-In fact where are the babies in my family? Cameron (I see his car daily at Legacy), Karrington (we will not talk about a car and Karrington at Legacy before my arrival). I’m reminded of all the outrage the CIA helped stir up about Jeremiah Wright and his interpretation of Psalm 137:8-9… “But America… Your chicken!!!! Chicky boom!”
+In fact where are the babies in my family? Cameron (I see his car daily at Legacy), Karrington (we will not talk about a car and Karrington at Legacy before my arrival). I’m reminded of all the outrage the CIA helped stir up about Jeremiah Wright and his interpretation of Psalm 137:8-9… “But America… Your chickens!!!! Chicky boom!”
 
-Katrina gave an award too? I know I’ve said this was a family operation but never like this! 
+My aunt Emma Jean Dale and my sister Katrina gave an award too? 
+
 
 ![IMG_0251](https://github.com/Mission23/Mission23/assets/140252803/14524ab6-1609-470d-a144-5efdd3f71263)
 
@@ -57,7 +58,17 @@ I must take over this church. At the rate it’s going, one Thanksgiving argumen
 
 That’s supposed to be my uncle Michael Richardson, aunt Cassandra, and their son’s, Cameron Richardson (not pictured), children all getting baptized. The problem is, they dont go to church. Even though my uncle Mike sits around on Sunday’s watching football, he is a member of this “Christian nation” he HAS seen a baptism, his heathen ass would lose his mind that you’d picture him just sitting in the “baptism pool,” your words. See the “order of protection” from the new all family, all the time, no room for anyone else, Mount Calvary MISSIONARY Baptist Church. 
 
-I’m starting to think the CIA just chases and pushes bogus paper. Readers beware of Connor’s gift certificates, they are really an invite to your death. See this entry about [Connor’s Steak and Seafood](https://github.com/Mission23/Mission23/wiki/Connor’s-Steak-and-Seafood)
+I know I’ve said this was a family operation but never like this! Besides, all of my family pictures would be my mom’s side… The children of Lila Richardson, but not all the children of the soon-to-be most famous Amos, the only man I ever called granddaddy. 
+
+The family I was referring to was my dad’s family, the Williams family. You remember CIA, the one that had the Will Henry that you guessed as the man (from birth certificates Im assuming). I barely knew the Williams family, I knew a few.
+
+The few I knew all knew one thing, my dad was a no good son of a bitch, and my mom had to leave him. They all supported my mom and stayed close after the divorce. 
+
+Felix went out of his way and told my mom to come to Lexington. She did, only having Sandy Hook to go to but she wanted more for me. We went to one church, Mount Calvary. She never thought of going to another. 
+
+Felix used his day job at IBM, to pull some strings at a company called Kentucky Central Life Insurance. Kentucky Central had purchased an IBM mainframe and Felix asked them to consider a young woman with no computing experience for anything they had open. They hired my mother as a keypunch operator, and she quickly gained experience and became what some have called the “BUS Driver” or console monitor. There are no wheels on this type of [bus](https://en.m.wikipedia.org/wiki/Bus_(computing)).
+
+Between issuing baptism certificates for sitting in a “baptism pool,” playing guess the granddaddy with birth certificates they steal from residences and try to hide in vital records departments, I’m starting to think the CIA just chases down, hides and pushes bogus paper to cover their tracks as they build hotels to suck up as much dead President paper  to pay off their debts around the world. Readers beware of Connor’s gift certificates, some of the paper they love passing around, they are really an invite to your death. See this entry about [Connor’s Steak and Seafood](https://github.com/Mission23/Mission23/wiki/Connor’s-Steak-and-Seafood). 
 
 I am terribly worried about the lookalikes. The CIA has a bad habit of killing them. The last time I encountered a Katrina at the Walmart in Riverdale I pleaded with her to call her family. I showed her a photo of my sister. She was pulled into the back of the store and never left it. 
 
