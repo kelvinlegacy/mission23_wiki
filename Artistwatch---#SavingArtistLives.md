@@ -8,9 +8,17 @@ Recently the world learned Tina Turner’s death, she died suddenly (without the
 
 Regardless of how much Micah let everyone know it wasn’t an official creation by the Creator, Turner’s death was announced. 
 
-## Musical Artists Confirmed Killed
-* DJ Paulo (murdered, impersonated, hotel)
-* Madonna (murdered, impersonated, hotel)
+## Micah’s Favorites & GoTos
+The following artists are listened to by Micah, sometimes to illustrate a point. 
+
+Micah did not know listening to an artist would cause their death, he now restricts his music to purchased music, nothing new. 
+
+For artists that have been murdered the reader should know these have been confirmed by the Creator. Artists notated with “hotel” are being impersonated, see [hotels](https://github.com/mission23/mission23/wiki/Hotels).
+
+### Artists Confirmed Killed
+* Tina Turner (murdered)
+* DJ Paulo (murdered, hotel)
+* Madonna (murdered, hotel)
 * Ida Corr (murdered, hotel)
 * Vandaveer & Production staff (murdered, most made into hotels)
 * DJ Alain Jackinsky (murdered, impersonated, hotel)
@@ -18,10 +26,10 @@ Regardless of how much Micah let everyone know it wasn’t an official creation 
 * Patti Labelle (murdered, hotel)
 * Queen Latifah (murdered, hotel)
 * Martha Washington of the Weather Girls (murdered, hotel)
-* John Michael Montgomery (murdered, impersonated, hotel)
+* John Michael Montgomery (murdered, hotel)
 * Inaya Day (murdered, hotel)
 
-# Artists listened to (non-exhaustive list)
+### Artists In Harm’s Way
 * Fedde le Grand (associated with Ida Corr, talked about by Micah)
 * Sean “Puffy” Combs
 * Mase 
@@ -34,6 +42,5 @@ Regardless of how much Micah let everyone know it wasn’t an official creation 
      - Catherine Zeta-Jones
      - Reneé Zellweger 
      - John C. Reilly
-
 
 Several others have been mentioned on the @kelvinatlanta Twitter feed with #SavingInnocentLives #SavingArtistsLives 
