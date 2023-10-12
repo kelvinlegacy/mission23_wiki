@@ -13,5 +13,12 @@ Chris subsequently changed his profile photo (below, another ruler in the baptis
 ![IMG_0249](https://github.com/mission23/mission23/assets/140252803/3ba732d7-1961-4843-8947-6f211e65b159)
 ![IMG_0248](https://github.com/mission23/mission23/assets/140252803/4d04e0b3-98c0-4b8c-a6ec-3e681daf783f)
 ![IMG_0247](https://github.com/mission23/mission23/assets/140252803/9889eacd-e7d3-431c-814c-5425b2e96e5b)
+
+Micah believes this is Christopher “Sean” Johnston of Lula, GA. A one-time friend of Micah’s, whom he was told was at Legacy. Micah tried repeatedly to get them to bring him to his apartment. 
+
+Even offering millions of dollars in Bitcoin. Micah worked with George Maxwell of Montreal beginning in 2011. Sean was living in Micah’s house at the time. George entrusted Micah with lots of things, code so secure that George wouldn’t let it be hosted anywhere. George loved Bitcoin and always paid with Bitcoin. 
+
+Micah told those he thought had access to Sean that he needed Sean’s living finger to unlock a hardware device, he secured with Sean’s fingerprint. A rainy day fund he didn’t want to access unless needed. Back then, Sean and Micah spent millions of dollars in Bitcoin (today’s value) on single pizza orders. 
+
 ![IMG_0246](https://github.com/mission23/mission23/assets/140252803/da818643-7e54-4df1-bcef-e1ea0e5d5091)
 ![IMG_0245](https://github.com/mission23/mission23/assets/140252803/e2f41116-b2c4-4b09-9f00-50bbce6cde23)
