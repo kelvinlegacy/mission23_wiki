@@ -39,6 +39,7 @@ For artists that have been murdered the reader should know these have been confi
 * Erykah Badu 
 * Shirley Caesar and the Georgia Mass Choir, they hate Whitney’s “He’s All Over Me”… I taunt them with it. 
 * Alan T, legendary gay circuit performer. “Jonesing”
+* Donald Keith Mobley / DJay Scorpio
 * The Soundtrack to Chicago 
      - Queen Latifah
      - Catherine Zeta-Jones
