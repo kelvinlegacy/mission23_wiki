@@ -47,7 +47,7 @@ For artists that have been murdered the reader should know these have been confi
 * Lizzo
 
 ## The Color Purple
-Every actor and actress in [The Color Purple](https://m.imdb.com/title/tt0088939/ ) movie are in extreme danger. Especially everyone in the “God is Trying To Tell You Something” church scene. Micah has used this scene several times to illustrate the proper way to bust into a church. Micah often adds, “If they had entered Mount Calvary this way, my church family would be talking about it still today, and hoping for a repeat.”
+Every actor and actress in [The Color Purple](https://m.imdb.com/title/tt0088939/ ) movie are in extreme danger. Especially everyone in the [“God is Trying To Tell You Something” church scene](https://youtu.be/uEv_d6zAYHk?si=bHNF83PjKng8xpuG). Micah has used this scene several times to illustrate the proper way to bust into a church. Micah often adds, “If they had entered Mount Calvary this way, my church family would be talking about it still today, and hoping for a repeat.”
 
 Several others have been mentioned on the @kelvinatlanta Twitter feed with #SavingInnocentLives #SavingArtistsLives 
 
