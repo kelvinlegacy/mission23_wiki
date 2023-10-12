@@ -1,4 +1,4 @@
-The CIA hates the messages some music sends. After a guided tour listening to Prince and Vandaveer, any artist or group that Micah selected and played practically became a target. 
+The CIA hates the messages some music sends. After a guided tour listening to Prince and Vandaveer, any artist or group that Micah selects and plays practically becomes a target. 
 
 ![IMG_0104](https://github.com/Mission23/Mission23/assets/140252803/f73b366c-afdb-4180-8656-39969a1b4d8a)
 
@@ -21,7 +21,7 @@ Regardless of how much Micah let everyone know it wasn’t an official creation 
 * John Michael Montgomery (murdered, impersonated, hotel)
 * Inaya Day (murdered, hotel)
 
-## Musical Artists Feared Harmed
+# Artists listened to (non-exhaustive list)
 * Fedde le Grand (associated with Ida Corr, talked about by Micah)
 * Sean “Puffy” Combs
 * Mase 
@@ -29,5 +29,11 @@ Regardless of how much Micah let everyone know it wasn’t an official creation 
 * Erykah Badu 
 * Shirley Caesar and the Georgia Mass Choir, they hate Whitney’s “He’s All Over Me”… I taunt them with it. 
 * Alan T, legendary gay circuit performer. “Jonesing”
+* The Soundtrack to Chicago 
+     - Queen Latifah
+     - Catherine Zeta-Jones
+     - Reneé Zellweger 
+     - John C. Reilly
+
 
 Several others have been mentioned on the @kelvinatlanta Twitter feed with #SavingInnocentLives #SavingArtistsLives 
