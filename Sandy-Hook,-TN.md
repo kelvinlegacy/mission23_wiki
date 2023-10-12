@@ -1,4 +1,4 @@
-Sandy Hook, TN first appeared on maps in 1888. Located in Maury County, TN. 
+Sandy Hook, TN first appeared on maps in 1888. Located in Maury County, TN. (35.48341° N, 87.23751° W)
 
 It was an unincorporated city. Its current state/classification is in question. 
 
