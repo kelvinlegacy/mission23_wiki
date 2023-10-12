@@ -6,6 +6,8 @@ The Rogers and Crawley families lived in Sandy Hook, side by side, for over 100 
 
 The closeness got too close at least once resulting in the baby girl of the family, Patricia Ann Crawley Williams. She had two of her own children, Micah (born Kelvin Eugene Williams) and Katrina (“Kat” or “Trina”) Renee Duvall Torrain. 
 
+Micah’s grandmother loved the color purple, and in every photo Micah remembers of her she’s wearing a beret. Micah’s grandmother grew up on Crawley Hill Road and his grandfather on West Sheepneck Road, both roads intersect with Johnson Hill Road. Micah does not know “old man Johnson” but apparently his grandparents did. Listen to [“Raspberry Beret”](https://music.youtube.com/watch?v=Y_YvUhaOIUk&si=wNQASEnNdU9Oinbf) to hear Micah’s grandfather tell the story of Micah’s mother’s conception. 
+
 ## Churches & Cemeteries in Sandy Hook
 
 The only church and cemeteries in Sandy Hook were located in West Sheepneck Rd. 
