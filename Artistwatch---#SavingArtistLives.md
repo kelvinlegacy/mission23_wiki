@@ -44,5 +44,8 @@ For artists that have been murdered the reader should know these have been confi
      - Catherine Zeta-Jones
      - Reneé Zellweger 
      - John C. Reilly
+* Lizzo
 
 Several others have been mentioned on the @kelvinatlanta Twitter feed with #SavingInnocentLives #SavingArtistsLives 
+
+Micah has a lot to say about “Lizzo” but _enough on that for now._
