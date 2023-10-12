@@ -8,6 +8,10 @@ The closeness got too close at least once resulting in the baby girl of the fami
 
 Micah’s grandmother loved the color purple, and in every photo Micah remembers of her she’s wearing a beret. Micah’s grandmother grew up on Crawley Hill Road and his grandfather on West Sheepneck Road, both roads intersect with Johnson Hill Road. Micah does not know “old man Johnson” but apparently his grandparents did. Listen to [“Raspberry Beret”](https://music.youtube.com/watch?v=Y_YvUhaOIUk&si=wNQASEnNdU9Oinbf) to hear Micah’s grandfather tell the story of Micah’s mother’s conception. 
 
+![IMG_0240](https://github.com/mission23/mission23/assets/140252803/8a25d2d4-03a8-4b2c-a2e5-2aca92519fc0)
+
+Micah says of the song, “My grandmother is not stupid, and why would horses wanna know my grandpa’s name?” 
+
 ## Churches & Cemeteries in Sandy Hook
 
 The only church and cemeteries in Sandy Hook were located in West Sheepneck Rd. 
