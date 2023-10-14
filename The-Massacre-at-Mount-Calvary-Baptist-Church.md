@@ -87,11 +87,7 @@ The city of Lexington spans every square inch of Fayette county. The location of
 
 The massacre started on Sunday April 2, 2023 when men and women of the CIA, led by Annie Jacobsen, executed an attack on the congregation that was attending Sunday morning worship services. 
 
-
-
-According to the Creator, Annie Jacobsen along with "Michael Blackmon" attended morning services and shortly before the end of the morning session, Jacobsen sent a message to a team waiting outside to start the attack.
-
-
+According to the Creator, Annie Jacobsen along with Michael Blackmon attended morning services and shortly before the end of the morning session, Jacobsen sent a message to a team waiting outside to start the attack.
 
 ## Anatomy of the Attack
 
