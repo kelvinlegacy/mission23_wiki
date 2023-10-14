@@ -200,6 +200,12 @@ Micah has spoken to many individuals during his seclusion who have admitted that
 
 The biggest confession from the CIA was made on Wednesday October 11, 2023 when a CIA employee produced the Rev. Dr. Felix G. Williams, III’s [ecclesiastical ring](https://en.m.wikipedia.org/wiki/Ecclesiastical_ring) in Micah’s apartment. 
 
+The ring was given to Micah at the end of another “showdown” which is a competitive event the CIA has created to compare penis sizes of the competitors. It is intended to keep Micah quiet in the entire tragedy that includes the massacre at the church. Evidence of this can be seen in the baptismal photo herein where a ruler is visible by the bottom step. 
+
+The competition is always won by the CIA without either candidate actually comparing anything. The CIA generally boasts of their win and recruits new people to further the tragedy. 
+
+![IMG_0323](https://github.com/mission23/mission23/assets/140252803/359a74e6-ce0e-4998-a458-e69f3aa8ab9c)
+
 ## The Charade Continues 
 
 The CIA has learned, from eavesdropping and in-person surveillance of his apartment that their charade is very easy to recognize by anyone who’s ever attended church regularly. In an effort to improve it, they have had their actors studying footage of Mount Calvary Baptist Church.
