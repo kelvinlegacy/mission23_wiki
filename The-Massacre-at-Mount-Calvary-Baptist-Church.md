@@ -51,6 +51,9 @@ Anyone, especially students, on campus needs to see [this entry](https://github.
 ## Supporting Documentation 
 This is a summary of events. All of the correspondence will help you understand the gravity of this situation. Please read any link herein, most will take you to a pdf/image of correspondence. 
 
+## Submitting Information/Edits
+If you have anything you’d like to submit for this entry, the mission23 wiki, or the Mount Calvary Baptist Church Memorial Foundation could use, please contact Micah. [Contact Information](https://github.com/mission23/mission23/wiki/Media-&-Contact-Information)
+
 ## Understanding Church & State
 If you are not familiar with the inner workings of a church, or this country’s separation of church and state contact someone you trust to help you understand it better. Any member of the clergy regardless of faith in the USA should be able to help you understand how bad of a situation it is when they read the letters. 
 
