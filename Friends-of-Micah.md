@@ -1,3 +1,28 @@
+# Unresponsive 
+On October 14th, 2023 Micah sent out an urgent plea for assistance to friends to see who was still alive. 
+
+His request asked that his friends would call him by FaceTime or Google Meet. 
+
+No one responded even though Micah made it clear he would be making and publishing a list of those who didn’t respond. 
+
+![IMG_0358](https://github.com/mission23/mission23/assets/140252803/2810cc09-c1a5-4c7d-a428-64bc5f1706fd)
+
+# Feared Hotels on Signal
+Micah installed Signal and found a list of friends and acquaintances. Messages sent show the delivery indicator. No one responded. 
+
+![IMG_0350](https://github.com/mission23/mission23/assets/140252803/f6517187-9af7-46ea-9474-e105a150f46a)
+![IMG_0351](https://github.com/mission23/mission23/assets/140252803/44203821-4333-47b9-a84c-fcb02564469f)
+![IMG_0352](https://github.com/mission23/mission23/assets/140252803/dea81c29-5c82-4b1e-8b6b-d0629b73ab1e)
+![IMG_0353](https://github.com/mission23/mission23/assets/140252803/139560c1-1f1d-471e-a382-b399c98c7f6d)
+![IMG_0354](https://github.com/mission23/mission23/assets/140252803/0369f7b7-871f-4575-949a-ce10c053b76c)
+![IMG_0355](https://github.com/mission23/mission23/assets/140252803/c7bfddd8-abea-420a-9adb-a367f8776574)
+![IMG_0356](https://github.com/mission23/mission23/assets/140252803/866d4474-b922-492f-8dab-74dfffad607a)
+![IMG_0357](https://github.com/mission23/mission23/assets/140252803/be9cba0a-2c08-421f-8a7d-b3bf900d9ef4)
+
+***
+# Facebook
+Micah does not believe any of his friends are alive anymore. This is a listing of his friends on his kelvinewilliams account, which the CIA now controls. 
+
 ![IMG_0899](https://github.com/Mission23/Mission23/assets/140252803/ebb1c2c9-f29a-4b0a-9e64-aed2d4bcdcb4)
 ![IMG_0900](https://github.com/Mission23/Mission23/assets/140252803/c54ea2d5-90fd-45cb-9e7f-49a773455d60)
 ![IMG_0901](https://github.com/Mission23/Mission23/assets/140252803/c72bd2cb-b19b-4b1d-bb7e-4bd11339cb9f)
