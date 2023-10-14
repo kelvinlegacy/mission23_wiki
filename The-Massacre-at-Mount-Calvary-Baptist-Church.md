@@ -61,7 +61,7 @@ If you are not familiar with the inner workings of a church, or this country’s
 There are some details provided herein, any more that are being withheld, that are not for minors (and even some adults) to read. They are terrifying and scary. Parents please hold your children closely and assure them that the Creator is going to make sure that these “bad guys” are stopped quickly, and for you adults that are mad or upset know that we need your help. You can’t read this and not act—-contacting your representatives is the first stop. There’s more, way more about this and other issues the federal government doesn’t want you to know about the “human trafficking” problem. 
 
 ***
- 
+# The Massacre at Mount Calvary Baptist Church
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
 
 A small church on Todds Road in remote Lexington, KY is the site of the largest massacre in US history.  It began during morning services the first Sunday in April when everyone attending was killed and continues through the use of Sunday services and funerals where visitors are killed upon entry. 
