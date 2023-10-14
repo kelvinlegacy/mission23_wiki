@@ -192,6 +192,14 @@ Gilead Sciences may not have known about the long term plans for Mount Calvary, 
 
 Gilead Sciences has not disclosed the massacre, the larger tragedy, the competitive threat or market risk to their shareholders or any regulatory body. 
 
+## Confessions 
+
+![IMG_0338](https://github.com/mission23/mission23/assets/140252803/193d923a-e3b2-42f0-9b7c-26ca3ec388c2)
+
+Micah has spoken to many individuals during his seclusion who have admitted that to being present on the first Sunday in April, to answering the diverted 911 calls, or who have returned for funerals. 
+
+The biggest confession from the CIA was made on Wednesday October 11, 2023 when a CIA employee produced the Rev. Dr. Felix G. Williams, III’s [ecclesiastical ring](https://en.m.wikipedia.org/wiki/Ecclesiastical_ring) in Micah’s apartment. 
+
 ## The Charade Continues 
 
 The CIA has learned, from eavesdropping and in-person surveillance of his apartment that their charade is very easy to recognize by anyone who’s ever attended church regularly. In an effort to improve it, they have had their actors studying footage of Mount Calvary Baptist Church.
