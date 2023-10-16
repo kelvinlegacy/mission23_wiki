@@ -371,3 +371,9 @@ Once the SotC announce they have taken control of the property it will be safe t
 * How did they project men outside the windows of the church?
      - Micah sees this daily at his apartment at Legacy at Riverdale.
 
+## Helping Us Get The Word Out
+…and eating while we are undergoing an economic embargo. 
+
+![IMG_0445](https://github.com/mission23/mission23/assets/140252803/12715ef5-1b7d-4968-9a7d-2e8d6a0cb66b)
+
+
