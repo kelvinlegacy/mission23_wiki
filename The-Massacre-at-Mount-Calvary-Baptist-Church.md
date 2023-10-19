@@ -1,10 +1,12 @@
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
 
-The article begins after the warnings. There are a few, but they are necessary!
+The article begins after the warnings. These are necessary to keep readers and interested parties safe from harm. 
 ***
 # Warnings
 ## In-Person Contact
 The SotC advise you to not call (by phone) or go near the church for any reason until you have heard about the Mount Calvary Baptist Church Memorial Foundation and the SotC taking control of the church building and its surrounding property on the broadcast evening world news AND read about it here, not a moment before. Failure to take heed of this warning may result in your death.
+
+See notices below. 
 
 ## Online Contact
 We have provided screenshots of the charade’s videos they are producing. They all come from Facebook on the page they created. We urge individuals not to view them or share them. Anyone showing interest in them may be identified, tracked down and killed. Avoid using anything requiring a login to view like Facebook when viewing anything regarding Mount Calvary Baptist Church, failure to do so may result in your death. 
@@ -39,26 +41,18 @@ We use the hashtag [#PrayToVerify](https://github.com/Mission23/Mission23/wiki/%
      - **Don’t fight the feeling.**
      - Do exactly what you feel. 
 
-Remember: No one on Earth can make you feel anything. No one.
-
-For example: 
-Micah and TomTom both say, “We got laundry to do. Why are none of you doing it??? A lot of truly dirty laundry. Just sitting there. We tell folks, maybe even try to guilt them with a tear. ITS STILL SITTING THERE. Why?”
+* Remember: 
+     - No one on Earth can make you feel anything. No one.
 
 ## GATech
 Anyone, especially students, on campus needs to see [this entry](https://github.com/Mission23/MCBCMassacre/wiki/Georgia-Tech).
 
-# Guidance
-## Supporting Documentation 
-This is a summary of events. All of the correspondence will help you understand the gravity of this situation. Please read any link herein, most will take you to a pdf/image of correspondence. 
+# Notices
+## No Services 
+Starting April 2nd, 2023 Mount Calvary Baptist Church is closed until further notice. 
 
-## Submitting Information/Edits
-If you have anything you’d like to submit for this entry, the mission23 wiki, or the Mount Calvary Baptist Church Memorial Foundation could use, please contact Micah. [Contact Information](https://github.com/mission23/mission23/wiki/Media-&-Contact-Information)
+No religious or other services will be performed at the church located at 4742 Todds Road in Lexington, Kentucky, this includes: regular Sunday morning/evening worship services, Wednesday evening Bible study, funeral services or wedding ceremonies. 
 
-## Understanding Church & State
-If you are not familiar with the inner workings of a church, or this country’s separation of church and state contact someone you trust to help you understand it better. Any member of the clergy regardless of faith in the USA should be able to help you understand how bad of a situation it is when they read the letters. 
-
-## Not for minors
-There are some details provided herein, any more that are being withheld, that are not for minors (and even some adults) to read. They are terrifying and scary. Parents please hold your children closely and assure them that the Creator is going to make sure that these “bad guys” are stopped quickly, and for you adults that are mad or upset know that we need your help. You can’t read this and not act—-contacting your representatives is the first stop. There’s more, way more about this and other issues the federal government doesn’t want you to know about the “human trafficking” problem. 
 
 ***
 # The Massacre at Mount Calvary Baptist Church
