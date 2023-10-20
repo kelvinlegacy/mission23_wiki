@@ -26,4 +26,5 @@ Micah cannot fathom anyone in his family authorizing disrupting a family’s mem
 
 The CIA “dug up and pulverized” the graveyards in 2022, and projected an image of Micah’s grandmother’s face from inside her coffin to him to further torment him and let him know, he believes, they’d eliminated all proof he had available to him to prove his ownership. 
 
+The CIA made reference to the destruction of the graveyard in a song attributed to Vandaveer called “Enough On That For Now,” the song was not by the true Vandaveer. 
 
