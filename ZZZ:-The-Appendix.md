@@ -22,3 +22,12 @@ Micah told those he thought had access to Sean that he needed Sean’s living fi
 
 ![IMG_0246](https://github.com/mission23/mission23/assets/140252803/da818643-7e54-4df1-bcef-e1ea0e5d5091)
 ![IMG_0245](https://github.com/mission23/mission23/assets/140252803/e2f41116-b2c4-4b09-9f00-50bbce6cde23)
+
+Re: Lizzo’s Rumors
+This is supposed to be my friend Wendy Drake of Atlanta. Worked for Lloyd’s of London. I’m guessing they made her a hotel too. 
+
+Love & miss the real one. 
+
+![IMG_0670](https://github.com/mission23/mission23/assets/140252803/4567ec25-e055-43e8-80a3-be97b608c12e)
+
+![IMG_0668](https://github.com/mission23/mission23/assets/140252803/fae069b6-c307-46b4-8065-e83c27dbcabd)
