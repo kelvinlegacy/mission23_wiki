@@ -39,13 +39,13 @@ If someone is ringing your doorbell at 5am and you just feel like pretending you
 * If you haven’t, read about [the massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church)
 * DO NOT REPORT ANYONE MISSING UNTIL YOU’VE TOLD EVERYONE YOU WILL BE DOING THAT! (See article above!)
 
-# This is Revenge of the Nerds
+# Revenge of the Nerds
 ## Assistance Needed
 Micah could use some help proving some things.
 
 * Geological Nerds
     - Watch those seismographs.
-* Well Connected Inte](https://github.com/mission23/mission23/wiki/%23StudentWatch-at-Georgia-Tech)r-Collegiate Nerds
+* Well Connected Inter-Collegiate Nerds
      - Below is a picture of my Katrina Renee Duvall. She went to Auburn and Tuskegee. Maybe you all can find some of her friends and see what they think of the second pic. 
 ![IMG_0054](https://github.com/Mission23/MCBCMassacre/assets/140252803/c7e195fa-2995-45c3-ab0b-5dc64d6d33d8)
 This pic is from the Pastoral Anniversary 
