@@ -88,7 +88,7 @@ It could be the new trend. But today’s trend for me is that everyone wearing o
 * Do not let them access any video recordings or camera systems. Pull them off the Internet. 
 
 ### Buzz Card Office
-* Do not issue a Buzz Card for Kelvin Eugene Williams. That’s Micah’s government name and the government has lookalikes and his ID. 
+* Do not issue a Buzz Card for Kelvin Eugene Williams. He’s an alumni (from 2013, ATDC). That’s Micah’s government name and the government has lookalikes and his ID. 
 
 ## Things Micah Sees
 ![IMG_0830](https://github.com/Mission23/MCBCMassacre/assets/140252803/621cbae7-aedc-4245-adda-81c34e229fcd)
