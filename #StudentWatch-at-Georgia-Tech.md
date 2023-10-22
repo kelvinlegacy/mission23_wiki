@@ -43,13 +43,18 @@ If someone is ringing your doorbell at 5am and you just feel like pretending you
 # Revenge of the Nerds
 ## Assistance Needed
 Micah could use some help proving some things.
-
+* Nerds who know git
+    - Clone and fetch often: https://github.com/MCBCMF/MCBCMassacre 
+     - Tell others to do the same (offline)
+* Any non-git nerd
+     - Download a copy of the repo above often. Click the green Code button in the Code/files section. 
+     - Tell others to do the same (offline)
 * Geological Nerds
-    - Watch those seismographs.
+    - Watch that seismographs.
 * Well Connected Inter-Collegiate Nerds
      - Below is a picture of my Katrina Renee Duvall. She went to Auburn and Tuskegee. Maybe you all can find some of her friends and see what they think of the second pic. 
 ![IMG_0054](https://github.com/Mission23/MCBCMassacre/assets/140252803/c7e195fa-2995-45c3-ab0b-5dc64d6d33d8)
-This pic is from the Pastoral Anniversary 
+This pic is from the Pastoral Anniversary at Mount Calvary Missionary Baptist Church, Inc. (the charade church).
 ![IMG_0251](https://github.com/Mission23/MCBCMassacre/assets/140252803/aa970bdf-d481-474b-b2ae-020d91c6ada5)
 
 ## Reporting Findings
@@ -70,14 +75,14 @@ If you must use email, send your findings to: contact@theservants.info
 ## Them
 GA Tech has a culture, and the CIA has a culture too. The two collide. It’s very easy to spot. Stay away from them. 
 
-**They tend to _”work”_ early mornings, be extremely cautious between the hours of 3am and sunrise.**
+**They tend to _”work”_ early mornings, be extremely cautious between the hours of 3am and sunrise. They are generally cloaked.**
 
 ## This Backpack
 It could be the new trend. But today’s trend for me is that everyone wearing one HAS TRIED TO KILL ME. 
 ![IMG_0440](https://github.com/mission23/MCBCMassacre/assets/140252803/a328fb54-87a6-458c-b694-16f5da73d44e)
 
 # Guidance 
-## For the IP Guys
+## Network Administrators 
 * Refer all requests for information to this page and section. Period. Per the Creator. 
 * To the Federal Government: “Fuck you. Strong reply to follow.” - Your Creator, the Creator. 
 * To the CIA: He has elected to just ignore you. See above. 
@@ -88,7 +93,7 @@ It could be the new trend. But today’s trend for me is that everyone wearing o
 * Do not let them access any video recordings or camera systems. Pull them off the Internet. 
 
 ## Buzz Card Office
-* Do not issue a Buzz Card for Kelvin Eugene Williams. He’s an alumni (from 2013, ATDC). That’s Micah’s government name and the government has lookalikes and his ID. 
+* Do not issue a Buzz Card for Kelvin Eugene Williams. He’s an alumni (from 2013, ATDC). That’s Micah’s government name and the government has impersonators and his ID. 
 
 # Things Micah Sees
 ![IMG_0830](https://github.com/Mission23/MCBCMassacre/assets/140252803/621cbae7-aedc-4245-adda-81c34e229fcd)
@@ -100,9 +105,9 @@ The dangers to this campus are all the new people invading it trying to kill me.
 
 ![IMG_0831](https://github.com/Mission23/MCBCMassacre/assets/140252803/462f9ab9-f6e0-4d9e-aa6b-846772aeabe1)
 
-Or maybe in the loading dock. If He wasn’t taking care of this campus, and Atlanta, hell this nation he’s tried to save twice before… You “Mr. I’m Gonna Kill him” and hundreds of thousands of others would be dead right now. 
+Or maybe in the loading dock. If He wasn’t taking care of this campus, and Atlanta, hell this nation He’s tried to save twice before… You “Mr. I’m Gonna Kill Micah” and hundreds of thousands of others would be dead right now. 
 
-That was a nuke nerds. I watched the blast as I walked by. If history is a judge, they’ll do it again and again. They like their suitcases, those friends of the CIA. 
+That was a nuke nerds. I watched the blast as I walked by. If history is a judge, they’ll do it again and again. They like their suitcases, those friends of the CIA (read: KGB). 
 
 ![IMG_0834](https://github.com/Mission23/MCBCMassacre/assets/140252803/d83fab9a-7d3d-4dbe-85f1-9d286e7eac8a)
 ![IMG_0833](https://github.com/Mission23/MCBCMassacre/assets/140252803/7262ba53-129e-428c-b227-236baad71235)
@@ -111,6 +116,7 @@ That was a nuke nerds. I watched the blast as I walked by. If history is a judge
 # Thanks!
 If I want to take your photo, it’s really to prevent them from making you disappear. The Creator makes me do this. 
 
-Thanks to this guy who works at the book store tech shop. He restored my bricked iPhone. 
+Thanks to this guy who works at the book store tech shop. He restored my bricked iPhone, he simply plugged it into a Mac and let it lay there for 20 minutes or so. 
+
 ![IMG_0829](https://github.com/Mission23/MCBCMassacre/assets/140252803/abcaf87a-900f-4625-a5d0-db916ee80c0f)
 
