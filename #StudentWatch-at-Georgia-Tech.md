@@ -79,35 +79,14 @@ It could be the new trend. But today’s trend for me is that everyone wearing o
 
 ### Nerd Assistance Needed
 This is Revenge of the Nerds. Micah could use some help proving some things.
-* Cloaking. 
-    - Individuals can wrap themselves in an electromagnetic field that renders them invisible. You guys have the equipment to detect and even see them. Do it! And get all the proofs!!!
-* Environmental 
-     - There are numerous toxins being introduced. 
-     - There may be some radioactive materials around too. 
-     - Monitor the square and behind Centergy. 
+
 * Geological Nerds
-    - Watch those seismographs. Starting now!
-* Anyone
-     - Grab a copy of every profile pic on Facebook user kelvinewilliams. That isn’t mine anymore. All of my friends were killed. They’ve hired lookalikes to kill me today. You’ll see them everywhere. 
-* Anyone
-     - Watch them. Record them. 
-     - I’m at Tech Square. If you see me, stay back, but watch them hit me. 
-     - Look for people who go out of their way to throw away trash. 
-     - Look for people who grab their cell phones (I’d pay to know what they are doing, I get shot and poisoned all the time and all I see is someone grabbing a phone). 
-     - Lasers. Don’t think these are your professors lasers!!! 
-     - Drops. They always drop stuff around me. Watch it. 
-      - “shot callers” these guys call the more orchestrated hits. They are not always easy to see.
+    - Watch those seismographs.
 * Well Connected Inter-Collegiate Nerds
      - Below is a picture of my Katrina Renee Duvall. She went to Auburn and Tuskegee. Maybe you all can find some of her friends and see what they think of the second pic. 
 ![IMG_0054](https://github.com/Mission23/MCBCMassacre/assets/140252803/c7e195fa-2995-45c3-ab0b-5dc64d6d33d8)
 This pic is from the Pastoral Anniversary 
 ![IMG_0251](https://github.com/Mission23/MCBCMassacre/assets/140252803/aa970bdf-d481-474b-b2ae-020d91c6ada5)
-
-Again. I’m sorry for coming here. I think the boss is about to do something to liven up the place. 
-
-If He does, can someone please message @micah23 on Wire and tell me where I can find the seismologists? I wanna see it. It’s gonna be epic. 
-
-Btw. Someone tell the seismologists that they can be the first to pinpoint the epicenters. Faster than the computers if you use this [method of pinpointing](https://github.com/Mission23/Mission23/wiki/The-Ringing-Of-The-Bell). THERE WILL BE NO DAMAGE, anyone experiencing fallout from their nuke? He’s good. 
 
 ## Things Micah Sees
 ![IMG_0830](https://github.com/Mission23/MCBCMassacre/assets/140252803/621cbae7-aedc-4245-adda-81c34e229fcd)
