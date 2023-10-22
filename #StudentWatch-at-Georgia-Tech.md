@@ -51,6 +51,7 @@ Micah could use some help proving some things.
      - Tell others to do the same (offline)
 * Physics nerds?
      - You guys and gals can help or identify the nerds to help the police and others on campus see or at least detect people cloaked. [See this](https://www.army-technology.com/features/military-camouflage-technology-us-russia/) for a starter. 
+     - I’m in midtown. They are always surrounding me. Gear up, pick a spot around the square, hit me on Wire (see Contact info) and I’ll walk through a few times. I hate this shit!!!
 * Geological Nerds
     - Watch that seismographs.
 * Well Connected Inter-Collegiate Nerds
