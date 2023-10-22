@@ -49,6 +49,8 @@ Micah could use some help proving some things.
 * Any non-git nerd
      - Download a copy of the repo above often. Click the green Code button in the Code/files section. 
      - Tell others to do the same (offline)
+* Physics nerds?
+     - You guys and gals can help or identify the nerds to help the police and others on campus see or at least detect people cloaked. [See this](https://www.army-technology.com/features/military-camouflage-technology-us-russia/) for a starter. 
 * Geological Nerds
     - Watch that seismographs.
 * Well Connected Inter-Collegiate Nerds
