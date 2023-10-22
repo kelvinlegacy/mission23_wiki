@@ -1,5 +1,5 @@
-[This is a special interest page for Georgia Tech. It is so that we can provide you with any information we think you need to know. (This is just supposed to be notes)
-
+This is a special interest page for Georgia Tech. It is so that we can provide you with any information we think you need to know. (This is just supposed to be notes)
+***
 ## Introduction 
 “Armageddon. I never thought I would bring it to Georgia Tech. I was just trying to warn students they were in danger by taking a gig that seemed harmless enough,” said Micah. 
 
