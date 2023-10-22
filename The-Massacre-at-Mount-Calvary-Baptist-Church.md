@@ -45,7 +45,7 @@ We use the hashtag [#PrayToVerify](https://github.com/Mission23/Mission23/wiki/%
      - No one on Earth can make you feel anything. No one.
 
 ## GATech
-Anyone, especially students, on campus needs to see [this entry](https://github.com/Mission23/MCBCMassacre/wiki/Georgia-Tech).
+Anyone, especially students, on campus needs to see [this entry](https://github.com/mission23/mission23/wiki/Armageddon-at-Georgia-Tech)
 
 # Notices
 ## No Services 
