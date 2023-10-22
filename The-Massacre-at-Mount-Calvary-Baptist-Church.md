@@ -53,7 +53,7 @@ On April 2nd, 2023 Mount Calvary Baptist Church was closed until further notice.
 
 No religious or other services will be held or performed at the church located at 4742 Todds Road in Lexington, Kentucky, this includes: regular Sunday morning/evening worship services, Wednesday evening Bible study, funeral services or wedding ceremonies. 
 
-*No member of the general public should visit Mount Calvary Baptist Church until they have seen the press conference from the front steps of the church on both the  local and evening world news of the massacre.*
+**No member of the general public should visit Mount Calvary Baptist Church until they have seen the press conference from the front steps of the church on both the  local and evening world news of the massacre.**
 
 ## Impersonation Notice
 Micah has written an open letter to the CIA for using impersonators of him and his slain family members to further these attacks. This is required reading to understand how far the government will go to cover this up. Please forgive the language and the rushed nature of the letter. [Click here to read it](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary).
