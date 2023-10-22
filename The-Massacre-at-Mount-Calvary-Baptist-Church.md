@@ -53,6 +53,8 @@ Starting April 2nd, 2023 Mount Calvary Baptist Church is closed until further no
 
 No religious or other services will be performed at the church located at 4742 Todds Road in Lexington, Kentucky, this includes: regular Sunday morning/evening worship services, Wednesday evening Bible study, funeral services or wedding ceremonies. 
 
+## Impersonation Notice
+Micah has written an open letter to the CIA for using impersonators of him and his slain family members to further these attacks. This is required reading to understand how far the government will go to cover this up. Please forgive the language and the rushed nature of the letter. [Click here to read it](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary).
 
 ***
 # The Massacre at Mount Calvary Baptist Church
@@ -63,9 +65,6 @@ A small church on Todds Road in remote Lexington, KY is the site of the largest 
 Additional victims of the massacre come from the apparent coverup, they are the people who report other victims as missing who have been previously killed. They are identified, located and murdered after filing a missing persons report, or in some cases simply mentioning another victim’s name. 
 
 More than 125 men, women and children were killed that first Sunday, and over 1,000 lives in total have been lost in the ongoing massacre turned genocide. 
-
-## Urgent Notice
-Micah has written an open letter to the CIA for using lookalikes of him and his slain family members to further these attacks. This is required reading to understand how far the government will go to cover this up. Please forgive the language and the rushed nature of the letter. [Click here to read it](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary). 
 
 ## "Where The Distance Makes The Difference"
 
