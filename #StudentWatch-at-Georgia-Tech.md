@@ -1,6 +1,6 @@
 This is a special interest page for Georgia Tech. It is so that we can provide you with any information we think you need to know. (This is just supposed to be notes)
 ***
-## Introduction 
+# Introduction 
 “Armageddon. I never thought I would bring it to Georgia Tech. I was just trying to warn students they were in danger by taking a gig that seemed harmless enough,” said Micah. 
 
 The gig was a *“see someone, say something”* task on TaskRabbit. However, the gig is actually an attempt at mind control, the actual customer is the Central Intelligence Agency, and the target is considered someone the CIA must eliminate, and anyone who even sees him or recognizes his face, in their minds, must be eliminated too. 
@@ -52,7 +52,7 @@ Micah could use some help proving some things.
 This pic is from the Pastoral Anniversary 
 ![IMG_0251](https://github.com/Mission23/MCBCMassacre/assets/140252803/aa970bdf-d481-474b-b2ae-020d91c6ada5)
 
-# Reporting Findings
+## Reporting Findings
 Any students or faculty that looks into anything we report or request should work with their departments to create a composite student/faculty member or use a pseudonym that is not linked to one person. 
 
 Network/IT should support this by sharing the login and never sharing access details for emails, etc. 
@@ -61,36 +61,36 @@ Anonymity is highly recommended.
 
 Anyone who wants to simply share their findings with us should see the contact page. We only use Wire, He will not allow anything else. Use the profile linked on the contact page. We will report it and take the heat. We will give you credit when the story breaks. 
 
-## E-Mail
+### E-Mail
 The use of Wire is encouraged by the Creator. Micah’s Wire profile can be [found here](https://account.wire.com/user-profile/?id=1CFBE1AC-E293-40D5-A38F-1E165D3DE50D).
 
 If you must use email, send your findings to: contact@theservants.info 
 
-## BOLO and Stay Away From
-### Them
+# Warnings
+## Them
 GA Tech has a culture, and the CIA has a culture too. The two collide. It’s very easy to spot. Stay away from them. 
 
 **They tend to _”work”_ early mornings, be extremely cautious between the hours of 3am and sunrise.**
 
-### This Backpack
+## This Backpack
 It could be the new trend. But today’s trend for me is that everyone wearing one HAS TRIED TO KILL ME. 
 ![IMG_0440](https://github.com/mission23/MCBCMassacre/assets/140252803/a328fb54-87a6-458c-b694-16f5da73d44e)
 
 # Guidance 
-### For the IP Guys
+## For the IP Guys
 * Refer all requests for information to this page and section. Period. Per the Creator. 
 * To the Federal Government: “Fuck you. Strong reply to follow.” - Your Creator, the Creator. 
 * To the CIA: He has elected to just ignore you. See above. 
 
-### GATech Police
+## GATech Police
 * Anonymize any missing persons reports. Now!!!
 * He is watching you. He knows which ones of you are double dipping with the CIA. Those of you who are should call in sick!
 * Do not let them access any video recordings or camera systems. Pull them off the Internet. 
 
-### Buzz Card Office
+## Buzz Card Office
 * Do not issue a Buzz Card for Kelvin Eugene Williams. He’s an alumni (from 2013, ATDC). That’s Micah’s government name and the government has lookalikes and his ID. 
 
-## Things Micah Sees
+# Things Micah Sees
 ![IMG_0830](https://github.com/Mission23/MCBCMassacre/assets/140252803/621cbae7-aedc-4245-adda-81c34e229fcd)
 When did my old office building get police stationed in the lobby?!?! His hand is on the gun. It’s really not that serious.
 
@@ -108,7 +108,7 @@ That was a nuke nerds. I watched the blast as I walked by. If history is a judge
 ![IMG_0833](https://github.com/Mission23/MCBCMassacre/assets/140252803/7262ba53-129e-428c-b227-236baad71235)
 ![IMG_0832](https://github.com/Mission23/MCBCMassacre/assets/140252803/13f756a0-87dd-48a4-bd76-3279fbc467a9)
 
-## Thanks!
+# Thanks!
 If I want to take your photo, it’s really to prevent them from making you disappear. The Creator makes me do this. 
 
 Thanks to this guy who works at the book store tech shop. He restored my bricked iPhone. 
