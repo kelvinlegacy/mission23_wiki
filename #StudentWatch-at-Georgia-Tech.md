@@ -1,6 +1,6 @@
 This is a special interest page for Georgia Tech. It is so that we can provide you with any information we think you need to know. (This is just supposed to be notes)
 
-## Armageddon 
+## Introduction 
 “Armageddon. I never thought I would bring it to Georgia Tech. I was just trying to warn students they were in danger by taking a gig that seemed harmless enough,” said Micah. 
 
 The gig was a *“see someone, say something”* task on TaskRabbit. However, the gig is actually an attempt at mind control, the actual customer is the Central Intelligence Agency, and the target is considered someone the CIA must eliminate, and anyone who even sees him or recognizes his face, in their minds, must be eliminated too. 
@@ -36,8 +36,8 @@ If someone is ringing your doorbell at 5am and you just feel like pretending you
 
 * If you hear booms, stay calm, He’s got this
 * If you see the military on the ground or in the sky, don’t worry
-
-* If you haven’t, read about [the massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church).
+* If you haven’t, read about [the massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church)
+* DO NOT REPORT ANYONE MISSING UNTIL YOU’VE TOLD EVERYONE YOU WILL BE DOING THAT! (See article above!)
 
 # Reporting Findings
 Any students or faculty that looks into anything we report or request should work with their departments to create a composite student/faculty member or use a pseudonym that is not linked to one person. 
@@ -63,20 +63,6 @@ GA Tech has a culture, and the CIA has a culture too. The two collide. It’s ve
 ### This Backpack
 It could be the new trend. But today’s trend for me is that everyone wearing one HAS TRIED TO KILL ME. 
 ![IMG_0440](https://github.com/mission23/MCBCMassacre/assets/140252803/a328fb54-87a6-458c-b694-16f5da73d44e)
-
-
-# Older Stuffs
-
-
-
-### Things To Do
-
-
-* Tell everybody what you see. 
-    - Take photos of any new companies you see on campus. Take them discreetly. We will provide a place to upload them later. 
-* Read [this](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church). That’s what all of this is about. 
-* DO NOT REPORT ANYONE MISSING UNTIL YOUVE TOLD EVERYONE YOU WILL BE DOING THAT! (See article above!)
-
 
 ### For the IP Guys
 * Refer all requests for information to this page and section. Period. Per the Creator. 
