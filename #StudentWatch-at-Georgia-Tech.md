@@ -1,9 +1,43 @@
 This is a special interest page for Georgia Tech. It is so that we can provide you with any information we think you need to know. (This is just supposed to be notes)
 
 ## Armageddon 
-“I never thought I would bring it to Georgia Tech. I was just trying to warn students they were in danger by taking a gig that seemed harmless enough,” said Micah. 
+“Armageddon. I never thought I would bring it to Georgia Tech. I was just trying to warn students they were in danger by taking a gig that seemed harmless enough,” said Micah. 
 
-You have been invaded by the CIA and the U.S. Federal Government. Their behavior is what many would consider “death throes.”
+The gig was a *“see someone, say something”* task on TaskRabbit. However, the gig is actually an attempt at mind control, the actual customer is the Central Intelligence Agency, and the target is considered someone the CIA must eliminate, and anyone who even sees him or recognizes his face, in their minds, must be eliminated too. 
+
+The CIA, contrary to popular belief, which works almost exclusively inside the country never intended on paying taskers, but make  them disappear. 
+
+Now that the word is out, GA Tech has been invaded by the CIA and the U.S. Federal Government. Their behavior is what many would consider “death throes,” and dangerous for students. 
+
+The purpose of this article is to provide safety information, report information, and occasionally ask for assistance. These asks are completely voluntary, but will help the entire country and world. “This is a revenge of the nerds and the Supreme Engineer, the Creator,” Micah says. 
+
+# #StudentWatch
+The Creator is highly engaged against the CIA and the federal government’s appetite for killing innocent people. 
+
+To keep students and others safe around GA Tech and Midtown we encourage you to take a moment and pray or think about any interaction with someone new, especially gigs. Then *go with your gut.* 
+
+If someone is ringing your doorbell at 5am and you just feel like pretending you’re not home—-do just that!  Even without prayer or thinking, if you get a strong feeling about something, especially like someone is nearby you can’t see (read: cloaks), *don’t fight the feeling.* 
+
+# Overall Advice 
+* Remain calm.
+     - You’ve done nothing wrong.      - Know that the Creator has this under control. 
+* Stay clear of me. 
+     - It’s a danger zone. We can meet later but I’m a moving target. Also they’ve killed people they just thought I spoke to. 
+     - I’ll post a photo here of me and TomTom after quakes. I’ll look different. 
+* Do not modify your beliefs
+     - The Creator doesn’t mind what they are—-He does consider atheism a religion though. 
+* Don’t talk online about this
+     - The NSA is actively working to silence this too. 
+     - IMMEDIATELY STOP USING WhatsApp, Telegram and Signal. 
+     - Use Wire, the Creator only allows us to use it. 
+* Do talk about this with others
+     - In person or by voice/video calls with others off-campus and around the country 
+     - Never use Zoom (it’s the CIA’s and they’re likely watching)
+
+* If you hear booms, stay calm, He’s got this
+* If you see the military on the ground or in the sky, don’t worry
+
+* If you haven’t, read about [the massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church).
 
 # Reporting Findings
 Any students or faculty that looks into anything we report or request should work with their departments to create a composite student/faculty member or use a pseudonym that is not linked to one person. 
@@ -33,36 +67,16 @@ It could be the new trend. But today’s trend for me is that everyone wearing o
 
 # Older Stuffs
 
-I am running around Midtown because I just don’t wanna live with the CIA who invaded my apartment posing as a friend. 
-
-They have admitted to killing at least the pastor at Mount Calvary, but we all know they could have written that off. They killed every inside and are still killing. 
-
-They gave me his ecclesiastical ring while boasting. They want it back, I cannot do that. 
-
-They have invaded Tech again today, I’m trying to stay right here on the square to keep them here. 
-
-Update: I was just kicked out of Barnes and Noble. 
 
 
 ### Things To Do
-* Remain calm. You’ve done nothing wrong. 
-* Know that the Creator has this under control. 
-* Stay clear of me. It’s a danger zone. We can meet later but I’m a moving target. 
-     - I’ll post a photo here of me and TomTom after quakes. I’ll look different. 
-     - Have you modified your playlists yet? See the wiki. 
-* Do not modify your beliefs. The Creator doesn’t mind what they are—-He does consider atheism a belief though, and some of you have actually turned it into a religion. 
-* Trust no one you didn’t know a week ago. 
-* DO NOT TAKE ANY GIGS that require you to “see someone, say something.” They are a mind control effort by the CIA and the pay is deadly. 
-* We’ve done this before, only the bad actors hate it. 
+
+
 * Tell everybody what you see. 
     - Take photos of any new companies you see on campus. Take them discreetly. We will provide a place to upload them later. 
-* Read and share [this](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church). That’s what all of this is about. 
+* Read [this](https://github.com/Mission23/MCBCMassacre/wiki/Massacre-at-Mount-Calvary-Baptist-Church). That’s what all of this is about. 
 * DO NOT REPORT ANYONE MISSING UNTIL YOUVE TOLD EVERYONE YOU WILL BE DOING THAT! (See article above!)
-* If you hear booms, stay calm, He’s got this. 
-* If you see the military on the ground or in the sky, don’t worry. 
-* If you see non-Tech fake students, ignore them. Seriously, ignore them. Don’t talk to the CIA spooks!
-* IMMEDIATELY STOP USING WhatsApp, Telegram and Signal. Use Wire, the Creator only allows us to use it. 
-* Do not post anything on Facebook or Twitter about this situation. Use Wire. 
+
 
 ### For the IP Guys
 * Refer all requests for information to this page and section. Period. Per the Creator. 
