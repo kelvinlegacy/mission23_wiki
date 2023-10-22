@@ -38,6 +38,7 @@ If someone is ringing your doorbell at 5am and you just feel like pretending you
 * If you see the military on the ground or in the sky, don’t worry
 * If you haven’t, read about [the massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church)
 * DO NOT REPORT ANYONE MISSING UNTIL YOU’VE TOLD EVERYONE YOU WILL BE DOING THAT! (See article above!)
+* See Guidance below (for specific departments/groups)
 
 # Revenge of the Nerds
 ## Assistance Needed
@@ -65,7 +66,6 @@ The use of Wire is encouraged by the Creator. Micah’s Wire profile can be [fou
 
 If you must use email, send your findings to: contact@theservants.info 
 
-# They’re Back
 ## BOLO and Stay Away From
 ### Them
 GA Tech has a culture, and the CIA has a culture too. The two collide. It’s very easy to spot. Stay away from them. 
@@ -76,6 +76,7 @@ GA Tech has a culture, and the CIA has a culture too. The two collide. It’s ve
 It could be the new trend. But today’s trend for me is that everyone wearing one HAS TRIED TO KILL ME. 
 ![IMG_0440](https://github.com/mission23/MCBCMassacre/assets/140252803/a328fb54-87a6-458c-b694-16f5da73d44e)
 
+# Guidance 
 ### For the IP Guys
 * Refer all requests for information to this page and section. Period. Per the Creator. 
 * To the Federal Government: “Fuck you. Strong reply to follow.” - Your Creator, the Creator. 
@@ -88,7 +89,6 @@ It could be the new trend. But today’s trend for me is that everyone wearing o
 
 ### Buzz Card Office
 * Do not issue a Buzz Card for Kelvin Eugene Williams. That’s Micah’s government name and the government has lookalikes and his ID. 
-
 
 ## Things Micah Sees
 ![IMG_0830](https://github.com/Mission23/MCBCMassacre/assets/140252803/621cbae7-aedc-4245-adda-81c34e229fcd)
