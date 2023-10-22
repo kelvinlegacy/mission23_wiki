@@ -1,4 +1,4 @@
-This is a special interest page for Georgia Tech. It is so that we can provide you with any information we think you need to know. (This is just supposed to be notes)
+[This is a special interest page for Georgia Tech. It is so that we can provide you with any information we think you need to know. (This is just supposed to be notes)
 
 ## Introduction 
 “Armageddon. I never thought I would bring it to Georgia Tech. I was just trying to warn students they were in danger by taking a gig that seemed harmless enough,” said Micah. 
@@ -39,6 +39,18 @@ If someone is ringing your doorbell at 5am and you just feel like pretending you
 * If you haven’t, read about [the massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church)
 * DO NOT REPORT ANYONE MISSING UNTIL YOU’VE TOLD EVERYONE YOU WILL BE DOING THAT! (See article above!)
 
+# This is Revenge of the Nerds
+## Assistance Needed
+Micah could use some help proving some things.
+
+* Geological Nerds
+    - Watch those seismographs.
+* Well Connected Inte](https://github.com/mission23/mission23/wiki/%23StudentWatch-at-Georgia-Tech)r-Collegiate Nerds
+     - Below is a picture of my Katrina Renee Duvall. She went to Auburn and Tuskegee. Maybe you all can find some of her friends and see what they think of the second pic. 
+![IMG_0054](https://github.com/Mission23/MCBCMassacre/assets/140252803/c7e195fa-2995-45c3-ab0b-5dc64d6d33d8)
+This pic is from the Pastoral Anniversary 
+![IMG_0251](https://github.com/Mission23/MCBCMassacre/assets/140252803/aa970bdf-d481-474b-b2ae-020d91c6ada5)
+
 # Reporting Findings
 Any students or faculty that looks into anything we report or request should work with their departments to create a composite student/faculty member or use a pseudonym that is not linked to one person. 
 
@@ -77,16 +89,6 @@ It could be the new trend. But today’s trend for me is that everyone wearing o
 ### Buzz Card Office
 * Do not issue a Buzz Card for Kelvin Eugene Williams. That’s Micah’s government name and the government has lookalikes and his ID. 
 
-### Nerd Assistance Needed
-This is Revenge of the Nerds. Micah could use some help proving some things.
-
-* Geological Nerds
-    - Watch those seismographs.
-* Well Connected Inter-Collegiate Nerds
-     - Below is a picture of my Katrina Renee Duvall. She went to Auburn and Tuskegee. Maybe you all can find some of her friends and see what they think of the second pic. 
-![IMG_0054](https://github.com/Mission23/MCBCMassacre/assets/140252803/c7e195fa-2995-45c3-ab0b-5dc64d6d33d8)
-This pic is from the Pastoral Anniversary 
-![IMG_0251](https://github.com/Mission23/MCBCMassacre/assets/140252803/aa970bdf-d481-474b-b2ae-020d91c6ada5)
 
 ## Things Micah Sees
 ![IMG_0830](https://github.com/Mission23/MCBCMassacre/assets/140252803/621cbae7-aedc-4245-adda-81c34e229fcd)
