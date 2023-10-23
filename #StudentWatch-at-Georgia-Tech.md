@@ -54,8 +54,14 @@ Micah could use some help proving some things.
      - I’m in midtown. They are always surrounding me. Gear up, pick a spot around the square, hit me on Wire (see Contact info) and I’ll walk through a few times. I hate this shit!!!
 * Geological Nerds
     - Watch that seismographs.
+* Campus Security /GATech Police
+     - Look for this. Dead leaves in the middle of healthy trees. That’s a good indicator of a tree mounted poison dispenser. These are remote controlled. Look for guns too. This one at corner of Williams & Abercrombie. 
+![IMG_0707](https://github.com/mission23/mission23/assets/140252803/b2ae0055-b6a5-4408-a8be-8e7fe5d0c57c)
+
 * Well Connected Inter-Collegiate Nerds
-     - Below is a picture of my Katrina Renee Duvall. She went to Auburn and Tuskegee. Maybe you all can find some of her friends and see what they think of the second pic. 
+     - Below is a picture of my Katrina Renee Duvall. She went to Auburn and Tuskegee. Maybe you all can find some of her friends and see what they think of the second pic.
+
+
 ![IMG_0054](https://github.com/Mission23/MCBCMassacre/assets/140252803/c7e195fa-2995-45c3-ab0b-5dc64d6d33d8)
 This pic is from the Pastoral Anniversary at Mount Calvary Missionary Baptist Church, Inc. (the charade church).
 ![IMG_0251](https://github.com/Mission23/MCBCMassacre/assets/140252803/aa970bdf-d481-474b-b2ae-020d91c6ada5)
