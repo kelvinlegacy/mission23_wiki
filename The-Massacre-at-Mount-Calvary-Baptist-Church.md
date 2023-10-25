@@ -1,6 +1,8 @@
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
 
 The article begins after the warnings. These are necessary to keep readers and interested parties safe from harm. 
+
+There is safety in numbers, the more clones of the [MCBCMF/MCBCMassacre](https://github.com/MCBCMF/MCBCMassacre) there are, the safer the entire world will be. If you know git, clone it now and fetch it often. 
 ***
 # Warnings
 ## In-Person Contact
