@@ -49,6 +49,9 @@ For artists that have been murdered the reader should know these have been confi
 * Carolyn Dawn Johnson
 * Gladys Knight 
 * Tracy Chapman 
+* The Best Little Whorehouse in Texas 
+     - Dolly Parton & Burt Reynolds
+     - Everyone who sings 
 
 ## The Color Purple
 Every actor and actress in [The Color Purple](https://m.imdb.com/title/tt0088939/ ) movie are in extreme danger. Especially everyone in the [“God is Trying To Tell You Something” church scene](https://youtu.be/uEv_d6zAYHk?si=bHNF83PjKng8xpuG). Micah has used this scene several times at Legacy at Riverdale (his apartment) to illustrate the proper way to bust into a church, generally when it seems they may be recruiting for another attack. Micah often adds, “If they had entered Mount Calvary this way, my church family would be talking about it still today, and hoping for a repeat.” Micah uses the video to detour people from going out of town for work, since it has become evident many people didn’t know where they were going. 
