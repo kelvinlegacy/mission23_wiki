@@ -2,7 +2,7 @@ _“A massacre is the killing of a large number of people, especially those who 
 
 The article begins after the warnings. These are necessary to keep readers and interested parties safe from harm. 
 
-There is safety in numbers, the more clones of the [MCBCMF/MCBCMassacre](https://github.com/MCBCMF/MCBCMassacre) there are, the safer the entire world will be. If you know git, clone it now and fetch it often. 
+There is safety in numbers, the more clones of the [MCBCMF/MCBCMassacre](https://github.com/MCBCMF/MCBCMassacre) there are, the safer the entire world will be. If you know git, clone it now and fetch it often. Always, read the [commit descriptions](https://github.com/MCBCMF/MCBCMassacre/commits/base).
 ***
 # Warnings
 ## In-Person Contact
