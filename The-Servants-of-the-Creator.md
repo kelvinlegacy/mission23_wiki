@@ -128,6 +128,8 @@ Micah has the _Kick Booty Challenge_ for anyone claiming to be a person in the J
 ### Micah's Contacts.
 In an effort to help law enforcement, friends and families of the missing. Micah has dumped his iPhone contacts.  No one answers the phone or texts anymore.  You can review his contacts [here](https://github.com/Mission23/Mission23/blob/master/assets/micah_iphone/wiki-dump.txt.csv).  This is not an exhaustive list, Micah's Google account which the CIA now has had over 5,000 total contacts.   
 
+Anyone who was a friend on Facebook (kelvinewilliams), followed or was circled on Google+ (kelvinewilliams), or Twitter (kelvinewilliams) should be considered in danger or a victim of this tragedy. 
+
 ## Thomas (better known as TomTom)
 TomTom was born Thomas Allen Chadwell on September 23, 1978.
 (And TomTom has to finish his own stuff.)
