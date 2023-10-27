@@ -62,16 +62,58 @@ Micah has the _Kick Booty Challenge_ for anyone claiming to be a person in the J
 * New Horizons Computer Learning Centers, Metrocenter Location, Nashville, TN
 * GCI/Trinagin, Chattanooga, TN
 * Trinity Communications, South Pittsburg, TN
+     - National Cable TV Cooperative
+     - HITS
+     - Broadband Specialists, Inc. 
 * GeniusNetworks / Altus Companies, Chattanooga, TN
+     - AT&T MIS
+     - XO Communications 
+     - Sprint
+     - SimpleSignal
+     - Colocation America
+     - Colocube
+     - Tulix / ATLDC
+     - 55 & 56 Marietta (various tenants)
+     - Cisco Systems 
+     - Arris
+     - Autus Technologies 
+     - US Bank
+     - Momentum Telecom
+     - IBBS
+     - Parasun
+     - Network Hardware Resell
+     - Netsource Global
+     - Wyatt, Tarrant & Combs (Nashville)
 * Southern Coastal Cable, Georgetown, SC
 * Penobscot Property Management, Teaneck, NJ (NYC Metro)
      - Village in the Park Apartments, Schaumburg, IL
      - Remington Place Apartments, Schaumburg, IL
      - Bristol Club Apartments, Downers Grove, IL
+* FreeSWITCH Solutions
+* SecurData
 * Basecamp Networks (now, Farmwave), Alpharetta, GA
 * VoApps, Atlanta, GA
 * textPlus/Nextplus, Marina del Rey (Los Angeles), CA
+     - OpenSIPS Solutions 
 * 373K, Decatur, GA
+     - Inteliquent 
+     - Peerless
+     - 360 Networks 
+     - Internap
+     - TelcoIQ
+     - TelLingua
+     - TGIFriday
+     - T-Mobile 
+     - Arterra / Kajeet
+     - West Telecom 
+     - 911Enable
+     - IntelePeer 
+     - XTelus 
+     - Dash Carrier Services
+* Elite Leather
+     - The Galardo Family
+* AirTechniques, Marietta, GA
+
 
 ### Micah's Contacts.
 In an effort to help law enforcement, friends and families of the missing. Micah has dumped his iPhone contacts.  No one answers the phone or texts anymore.  You can review his contacts [here](https://github.com/Mission23/Mission23/blob/master/assets/micah_iphone/wiki-dump.txt.csv).  This is not an exhaustive list, Micah's Google account which the CIA now has had over 5,000 total contacts.   
