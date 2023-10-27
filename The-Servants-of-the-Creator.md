@@ -67,6 +67,8 @@ Micah has the _Kick Booty Challenge_ for anyone claiming to be a person in the J
      - HITS
      - Broadband Specialists, Inc. 
 * GeniusNetworks / Altus Companies, Chattanooga, TN
+     - At-Risk Protection (Chuck Tobin)
+     - Aegis Global Security (Jack Hickey)
      - AT&T MIS
      - XO Communications 
      - Sprint
