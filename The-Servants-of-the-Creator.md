@@ -119,6 +119,8 @@ Micah has the _Kick Booty Challenge_ for anyone claiming to be a person in the J
      - Jason Nichols
 * Kelaca, Raleigh, NC
      - Synergem Tech
+* Fiverr
+     - Multiple telephony gigs
 * VosLogic, Des Moines, IA (CIA job)
 * FluentStream (interview)
 * Genesys (interview)
