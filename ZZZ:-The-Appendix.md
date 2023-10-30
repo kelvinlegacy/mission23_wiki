@@ -34,3 +34,8 @@ Love & miss the real one.
 ![IMG_0836](https://github.com/mission23/mission23/assets/140292625/f3955451-5b4c-4cf2-8af9-42f9eef007c1)
 ![IMG_0829](https://github.com/mission23/mission23/assets/140292625/df30b09b-f996-48ac-95cc-0462256fbe1e)
 ![IMG_0837](https://github.com/mission23/mission23/assets/140292625/a4aca71c-4e42-457f-aa62-54db8c4ba464)
+
+Some photo albums-
+CIA People: https://share.icloud.com/photos/021k0yadBnkCh0aEKpZLSZjxQ
+
+CIA Places: https://share.icloud.com/photos/0f62eAVDCN1lbN4aEBu6J0_tw
