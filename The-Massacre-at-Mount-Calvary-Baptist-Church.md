@@ -64,17 +64,21 @@ Micah has written an open letter to the CIA for using impersonators of him and h
 # The Massacre at Mount Calvary Baptist Church
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
 
-A small church on Todds Road in remote Lexington, KY is the site of the largest massacre in US history.  It began during morning services the first Sunday in April when everyone attending was killed and continues through the use of Sunday services and funerals where visitors are killed upon entry. 
+It began during morning services the first Sunday in April 2023 when everyone in attendance was killed and continues through the use of charade services like Sunday morning worship and funerals, where innocent worshippers and mourners are killed.
+The massacre’s coverup has started a genocide.
 
-Additional victims of the massacre come from the apparent coverup, they are the people who report other victims as missing who have been previously killed. They are identified, located and murdered after filing a missing persons report, or in some cases simply mentioning another victim’s name. 
+The death toll from the subsequent genocide, which is ongoing, comes from families and friends of the initial victims of the massacre that attended funerals held at the church. Mourners were provided the time and date of a funeral as a response to a call to the church inquiring whether a loved one had been seen.
 
-More than 125 men, women and children were killed that first Sunday, and over 1,000 lives in total have been lost in the ongoing massacre turned genocide. 
+The church is the first logical place any rational person would call, likely before the police. It’s a church and the last place their loved one said they were going before they vanished.
 
-## "Where The Distance Makes The Difference"
+The time and date provided was never for one particular person, and a person may have had as many as ten funerals. As each wave of funerals passed, the death toll drastically increased.
+
+Additional deaths have occurred after individuals made reports of missing friends and family members.
+More than 125 men, women and children were killed that first Sunday, and over 1,000 lives in total have been lost.
+
+## Location
 
 Mount Calvary Baptist Church is located at 4742 Todds Road in Lexington, KY.  The church is in a remote area of Lexington with very low traffic and very few, if any, routine police patrols.
-
-The church’s motto is: _Where the distance makes the difference._
 
 The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. The church’s address conveys city, however, if Fayette county were any other county, the church would be in a rural suburb called Pricetown. (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
 
