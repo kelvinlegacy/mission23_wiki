@@ -64,6 +64,8 @@ Micah has written an open letter to the CIA for using impersonators of him and h
 # The Massacre at Mount Calvary Baptist Church
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
 
+A small church on Todds Road in remote Lexington, Kentucky is the site of the largest massacre inside of a church in US history.
+
 It began during morning services the first Sunday in April 2023 when everyone in attendance was killed and continues through the use of charade services like Sunday morning worship and funerals, where innocent worshippers and mourners are killed.
 The massacre’s coverup has started a genocide.
 
