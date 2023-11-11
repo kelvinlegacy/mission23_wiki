@@ -1,3 +1,5 @@
+This is an addendum to [The CIA Massacre of Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-CIA-Massacre-of-Mount-Calvary-Baptist-Church) please read that first. 
+
 ## Mitigating Micah
 According to the Creator, the CIA identified Micah as a potential threat to the massacre operation citing that he routinely warns individuals that he has learned may be active targets of the CIA in their attempts to eliminate all of his friends and family and decided that they must mitigate him prior to pursuing the operation and given he may possibly be alerted to the the plan.
 
