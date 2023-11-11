@@ -18,7 +18,14 @@ Other ethnic groups are starting to feel the effects of the genocide and the pri
 There have been over 2000 deaths in the genocide. Victims may not be reported as dead due to other activities by the CIA to hide the deaths. 
 
 ## The Creator’s Involvement 
-The Creator for the third time in human history has decided to become directly involved in human activities and stop this genocide. 
+The Creator for the third time in human history has decided to become directly involved in human activities and stop this genocide.
 
-The Creator sees the future outcome and knows it must be stopped now. Objectives for the Creator’s mission23 for life on Earth have been updated to address this genocide. 
+The Creator does not normally intervene in human interactions, that is because conscious entities like human beings always escalate when things don’t go as planned. For example, when you’re hammering a nail and the nail isn’t going in, you change your grip and swing the hammer harder. Which mean you can end up with a sore thumb. 
 
+If an unseen force prevents you from doing what you want to do then you woukd escalate in your activity. Therefore, whenever humans need help, He sends His servants in. His servants are just doing what He wants done, and humanity needs done. 
+
+The Creator can see the future clearly. The Creator said once, “If you know all the ac actors, you know the situation or environment, you know exactly how it’s going to end.”
+
+If the genocide progresses as it is currently going there will be no one left in the United States except for CIA.  
+
+While this may sound good for CIA affiliated persons, eventually it would only be those who rank at the CIA. Seeing what he has the creator has added to the objectives for the Creator’s mission23 for life on Earth have been updated to address this genocide. 
