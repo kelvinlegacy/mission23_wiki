@@ -1,1 +1,157 @@
 # The CIA Massacre of Mount Calvary Baptist Church
+_“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
+
+The article begins after the warnings. These are necessary to keep readers and interested parties safe from harm. 
+
+There is safety in numbers, the more clones of the [MCBCMF/MCBCMassacre](https://github.com/MCBCMF/MCBCMassacre) there are, the safer the entire world will be. If you know git, clone it now and fetch it often. Always, read the [commit descriptions](https://github.com/MCBCMF/MCBCMassacre/commits/base).
+***
+# Warnings
+## In-Person Contact
+The SotC advise you to not call (by phone) or go near the church for any reason until you have heard about the Mount Calvary Baptist Church Memorial Foundation and the SotC taking control of the church building and its surrounding property on the broadcast evening world news AND read about it here, not a moment before. Failure to take heed of this warning may result in your death.
+
+See notices below. 
+
+## Online Contact
+We have provided screenshots of the charade’s videos they are producing. They all come from Facebook on the page they created. We urge individuals not to view them or share them. Anyone showing interest in them may be identified, tracked down and killed. Avoid using anything requiring a login to view like Facebook when viewing anything regarding Mount Calvary Baptist Church, failure to do so may result in your death. 
+
+## Getting Information Online
+Always check your Internet browsers address bar!  When getting information from the SotC or anything that quotes the Creator (capital C) directly. 
+
+![IMG_0691](https://github.com/Mission23/MCBCMassacre/assets/140252803/b9f4d7b9-04b8-452e-8d7e-d71a6db8fce6)
+
+There is only one place you can obtain information about the Mount Calvary Baptist Church Memorial Foundation or the Servants of the Creator (SotC) that is [https://GitHub.com/Mission23](https://github.com/Mission23). All of our domain names (ie. SotC.wiki, CIAMassacre.site and CIAKill.site) will automatically redirect to [https://github.com/Mission23](https://github.Com/Mission23). Make sure it begins with “https://github.com/mission23/“) be check your address bar (see image above, iOS/iPhone shown), you may have to tap the address bar for the full address to be shown.  
+
+Make sure that’s the site where you are when reading about Mount Calvary Baptist Church, failure to do so can result in you consuming bad information. 
+
+## Always Pray to Verify 
+On a personal note, we’ve never seen Him this angry. That’s over 6 billion years of service. He wants you to pray, and if you don’t pray, think really hard about any site you visit or information you consume about Mount Calvary Baptist Church. 
+
+We use the hashtag [#PrayToVerify](https://github.com/Mission23/Mission23/wiki/%23PrayToVerify) a lot, that’s because some things are very hard to believe. But no one can make you feel any kind of way, He can and will when you ask Him to. 
+
+* You are: 
+     - Reading about a church that is located on Todds Road in Lexington, KY; or 
+      - Reading anything about a church with “Mount Calvary” in its name in Lexington, KY; or 
+      - you are going to a wedding or funeral somewhere on Todds Road in Lexington, KY. 
+
+* You pray: 
+      - “Heavenly Father, will you help and guide me.” 
+
+* How you may feel: 
+     - You suddenly hate everything about the website you’re on and you have the overwhelming desire to go to github.com, then search for “Mount Calvary” EVEN THOUGH you’ve never been on that site and the front page says it’s about everything except churches. 
+     - You suddenly feel like, “I need to mow the yard and I really don’t wanna see them like that.”
+
+* What should you do: 
+     - **Don’t fight the feeling.**
+     - Do exactly what you feel. 
+
+* Remember: 
+     - No one on Earth can make you feel anything. No one.
+
+# Notices
+## No Services 
+On April 2nd, 2023 Mount Calvary Baptist Church was closed until further notice. 
+
+No religious or other services will be held or performed at the church located at 4742 Todds Road in Lexington, Kentucky, this includes: regular Sunday morning/evening worship services, Wednesday evening Bible study, funeral services or wedding ceremonies. 
+
+**No member of the general public should visit Mount Calvary Baptist Church until they have seen the press conference from the front steps of the church on both the  local and evening world news of the massacre.**
+
+## Impersonation Notice
+Micah has written an open letter to the CIA for using impersonators of him and his slain family members to further these attacks. This is required reading to understand how far the government will go to cover this up. Please forgive the language and the rushed nature of the letter. [Click here to read it](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary).
+
+## CLASSIFIED
+Out of His concern for the emotional wellbeing of all humanity, the Creator has CLASSIFIED certain details of this event. 
+
+***
+# The Massacre at Mount Calvary Baptist Church
+![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55)
+
+A small church on Todds Road in remote Lexington, Kentucky is the site of the largest massacre inside of a church in US history.
+
+It began during morning services the first Sunday in April 2023 when everyone in attendance was killed. 
+The massacre’s coverup has started a genocide.
+
+The death toll from the subsequent genocide, which is ongoing, comes from families and friends of the initial victims of the massacre that attended funerals held at the church. Mourners were provided the time and date of a funeral as a response to a call to the church inquiring whether a loved one had been seen.
+
+The church is the first logical place any rational person would call, likely before the police. It’s a church and the last place their loved one said they were going before they vanished.
+
+The time and date provided was never for one particular person, and a person may have had as many as ten funerals. As each wave of funerals passed, the death toll drastically increased.
+
+Additional deaths have occurred after individuals made reports of missing friends and family members.
+More than 125 men, women and children were killed that first Sunday, and over 1,000 lives in total have been lost.
+
+## Location
+
+Mount Calvary Baptist Church is located at 4742 Todds Road in Lexington, KY.  The church is in a remote area of Lexington with very low traffic and very few, if any, routine police patrols.
+
+The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. The church’s address conveys city, however, if Fayette county were any other county, the church would be in a rural suburb called Pricetown. (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
+
+![IMG_0430](https://github.com/Mission23/MCBCMassacre/assets/140252803/92105bb7-0bf3-457f-a14e-076162840973)
+
+## 
+
+Around 1:30am on the morning of the attack, Micah was arrested in Riverdale, Georgia for shoplifting. 
+
+The alleged incident occurred at the Texaco, and while walking back to his apartment, Micah walked past a police officer driving slowly on GA-85. 
+
+As Micah turned onto Howard St, the officer pulled up behind him and turned on the lights. Micah was questioned, arrested and taken to Clayton County Jail. Micah had multiple attempts made on his life inside the jail. 
+
+The next morning he was rushed out of the jail into a waiting DeKalb County Sheriff’s patrol car. Micah never encountered a single inmate from the surrounding community or general public throughout the process, only CIA personnel posing as inmates or jail employees. 
+
+Upon arrival at the DeKalb County Detention Center, Micah asked to use his mobile phone. Micah was concerned about a dog he had, that was locked in a pet carrier in his apartment. Micah contacted Tracy Thompson of Elizabeth Foundation and asked her if she could help him by caring for the dog while he was incarcerated. Tracy urged him to re-home the dog instead of a temporary shelter, Micah agreed. 
+
+Micah sent out a tweet hoping someone would see it, and entered the DeKalb County Detention Center and another round of attempts on his life.
+
+According to the Creator, Annie Jacobsen 
+arrived at Mount Calvary Baptist Church around 11:45 am. Jacobsen was welcomed in by the ushers and found a seat in the rear of the church. Jacobsen focused mainly on her mobile phone. 
+
+After Thompson received the call from Micah, according to the Creator, she sent a message to Jacobsen advising that Micah was now secured at DeKalb County Detention Center. 
+
+Jacobsen sent a message to the supervisor of the group outside. The group made up of approximately fifty men and one woman were dressed in all black. 
+
+Four men armed with shotguns quietly entered the church through the exterior door of the anteroom outside of the women’s restroom on the northwest corner of the church, two of the men went into the adjoining men’s anteroom. 
+
+The rear entrances are the lesser used entrances with the women’s anteroom being the one generally used due to the layout of the parking lot. During services, the doors between the anterooms to the sanctuary are closed to prevent interruptions from other activities in the rear of the church. 
+
+Simultaneously, the group that was waiting outside came from the rear parking lot of the church and gathered in the vestibule and on the front steps of the church undetected by the congregation. 
+
+![Floorplan of Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/blob/master/assets/floorplan.png)
+
+Within the sanctuary, congregants noticed what appeared to be men amassing outside the windows on the western side of the church that runs along Pricetown Lane. It gave the congregants that seen it the sense that the church was being surrounded, unnerving some.  
+
+Most of the congregation jumped to its feet when they heard the noise from the group gathering in the vestibule. They were alarmed by the number of people in the small room that normally has no more than five or so waiting at any given time. Also by the fact that by that point, late in the service, usually no one is trying to enter the sanctuary. Some in the congregation thought it was a law enforcement action. 
+
+Annie Jacobsen stood up, walked to the rear of the sanctuary, and joined the group inside the vestibule. She obtained a bullhorn from the only other woman in the group, and announced that she absolutely hated the service and that everyone in the church needed to die. 
+
+At that point, the individuals who were in the anterooms in the back of the church, opened the doors to the sanctuary with their shotguns at the ready, and the group that had amassed in the vestibule loudly entered the sanctuary. They hurled racial slurs that made the congregation realize that their entrance was not any law enforcement action. 
+
+Although not a law enforcement action, Micah has learned that some in the group were law enforcement, a few of them were at the scene when Micah was arrested earlier that morning. 
+
+Several in the congregation attempted to call 911 from their mobile phones and their calls were answered by the individuals on mobile phones, not by Lexington-Fayette Urban County Government or any other public safety answering point (PSAP).
+
+At least one truck full of cellular telephony equipment, called a Cell On Wheels (or COW), was parked in the rear parking lot. It was powered on shortly after arrival.
+
+COWs are deployed and used by mobile network operators to quickly restore service in the event of a catastrophic tower failure. Once deployed and powered up, mobile phones in the area will treat it like any other tower they encounter. Quite simply, if the phone “hears” the tower, it will talk to it. The typical tower covers roughly one-half miles, so when the COW was started mobile phones in the general vicinity treated it like any other tower they would hear along in a typical commute. 
+
+The COWs were not connected to the available cellular networks that provide the coverage to the church. Micah, who has spent most of his professional career as an Internet Protocol Engineer with companies like textPlus and 373K specializes in Voice over IP and has worked alongside cellular providers like TMobile, made an professional guess as to what happened to the calls. 
+
+Micah says, “With the phones homed (connected) to the COW, any dialed number would be handled by the COWs onboard radio equipment. What would normally route over the back haul connection or the connection to the cellular networks, they could just hand off to equipment in the truck. You can download software from the web and, for me, it would take less than an hour to configure a soft switch to handle calls made to anything. Spending no money on a terminating carrier just playing a recording is simple, and routing those calls to another number once in the switch would take a couple bucks, a high speed Internet connection and about two more minutes of configuration.”
+
+According to the Creator, the configuration Micah describes is identical to what was deployed. All calls to 911 were routed and connected to their personnel’s mobile phones. All other calls were dropped. 
+
+The Creator tells Micah that they used [Asterisk](https://asterisk.org), the most popular open source soft switch, and [Flowroute](https://flowroute.com) for terminating (completing) calls. Micah says, “All they needed was a credit card, they didn’t even need to make a phone call to get that setup. Flowroute would have never known what was going on, it’s just calls to a non-emergency number. From Flowroute’s vantage point, the leg of the call they’re handling, no one has called 911. Over a SIP trunk, they likely wouldn’t have seen that. Just a normal call to a mobile phone number.”
+
+The call takers were told for the operation to act as true 911 call takers, act as if they were gathering information, say they were sending help, but otherwise ignore the pleas for it.  Two out of the seven call takers have worked in PSAPs as 911 call takers, and provided training to the others. 
+
+911 callers from within the sanctuary provided address information, a description of the activity inside the church and call back numbers. They were told emergency services were en-route and hung up on—-something rarely done by actual 911 call takers. 
+
+Inside the normally peaceful sanctuary became hell almost immediately as the CIA’s personnel raped, pillaged and terrorized the congregation. Parents did everything to shield their children from the things going on around them. 
+
+The CIA’s personnel became animals in the sanctuary of the remote church. Members of the congregation, in a two by two manner, were taken to the front of the church and beheaded using chainsaws at the piano and organ’s benches. 
+
+The bodies of those slain were placed in the baptismal which is at the front of the church. The baptismal’s water had a formulation added to it which made it chemically cremate the bodies. 
+
+### “Frying Chicken”
+
+The initial operation is referred to by the CIA and others as “Frying Chicken.” 
+
+The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
