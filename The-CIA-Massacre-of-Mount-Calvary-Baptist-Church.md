@@ -165,3 +165,6 @@ The Creator says, “Much like _’Able Danger’_ was the blueprint for 9/11.  
 
 ![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f)
 Jacobsen. 
+
+## See Also
+* [The Bluegrass Genocide](https://github.com/mission23/mission23/wiki/The-Bluegrass-Genocide)
