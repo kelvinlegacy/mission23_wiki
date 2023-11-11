@@ -8,7 +8,7 @@ Attempted coverup of the massacre of Mount Calvary Baptist Church marks the begi
 
 The plans for the cover-up included, holding funerals for the victims of the massacre. Individuals who contacted the church showing interest in finding their loved ones for later, contacted back and notified of their loved one’s death and funeral services arrangements were provided to them. 
 
-The funerals were to be held at Mount Calvary Baptist Church, and dozens of funerals at any giver time. Arriving mourners were killed upon entry to the church.
+The funerals are being held at Mount Calvary Baptist Church, and dozens of funerals at any given time. Arriving mourners are killed upon entry to the church.
 
 Each mourner killed caused new friends and family to call the church, and the cycle was repeated. 
 
