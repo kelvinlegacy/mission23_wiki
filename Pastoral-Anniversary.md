@@ -104,3 +104,5 @@ Do remember we’re much more cultured than that crew from West Virginia you’v
 Let the fucking begin, when I press this little green button here. I think it says, I can’t really read, that public education, but you know where I started… that little red corvette, I mean building.
 
 Oh, it says, “Save” 
+
+ps. I’m not gonna look the same. Gotta put on my work uniform. That requires me to “shed my skin down to my bones” … Are you listening to “Dig Down Deep” by Vandaveer. 
