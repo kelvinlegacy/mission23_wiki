@@ -155,3 +155,13 @@ The bodies of those slain were placed in the baptismal which is at the front of 
 The initial operation is referred to by the CIA and others as “Frying Chicken.” 
 
 The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
+
+## Surprise, Kill, Vanish
+The initial massacre was based on tactics written by Jacobsen in her book, _"Surprise, Kill, Vanish."_  A review of the book can be found on the CIA's [website](https://www.cia.gov/static/Review-Surprise-Kill-Vanish.pdf), a copy is stored in our repository and can be viewed [here](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20180830_cia_review_surprise_kill_vanish.pdf).  
+
+The Creator says, “Much like _’Able Danger’_ was the blueprint for 9/11.  _’Surprise, Kill, Vanish’_ was the blueprint used by the CIA for the initial attach Mount Calvary Baptist Church on the first Sunday.”
+
+![IMG_0330](https://github.com/Mission23/MCBCMassacre/assets/140252803/348262e4-5f2d-4055-8157-9d12285435e4)
+
+![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f)
+Jacobsen. 
