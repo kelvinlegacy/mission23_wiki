@@ -1,1 +1,1 @@
-# Bluegrass 
+The massacre of Mount Calvary Baptist Church marks the beginning of the Bluegrass Genocide. The genocide started and continued by the CIA, the bluegrass genocide is the first genocide in the United States of a non-native people and the only one in recent history. it is the result of a cover-up attempt about the CIA. 
