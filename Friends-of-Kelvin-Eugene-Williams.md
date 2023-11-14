@@ -1,14 +1,14 @@
 # Unresponsive 
-On October 14th, 2023 Micah sent out an urgent plea for assistance to friends to see who was still alive. 
+On October 14th, 2023 Kelvin sent out an urgent plea for assistance to friends to see who was still alive. 
 
 His request asked that his friends would call him by FaceTime or Google Meet. 
 
-No one responded even though Micah made it clear he would be making and publishing a list of those who didn’t respond. 
+No one responded even though he made it clear he would be making and publishing a list of those who didn’t respond. 
 
 ![IMG_0358](https://github.com/mission23/mission23/assets/140252803/2810cc09-c1a5-4c7d-a428-64bc5f1706fd)
 
 # Feared Hotels on Signal
-Micah installed Signal and found a list of friends and acquaintances. Messages sent show the delivery indicator. No one responded. 
+Kelvin installed Signal and found a list of friends and acquaintances. Messages sent show the delivery indicator. No one responded. Signal is banned for use by the Creator, it was subsequently uninstalled. 
 
 ![IMG_0350](https://github.com/mission23/mission23/assets/140252803/f6517187-9af7-46ea-9474-e105a150f46a)
 ![IMG_0351](https://github.com/mission23/mission23/assets/140252803/44203821-4333-47b9-a84c-fcb02564469f)
@@ -21,7 +21,7 @@ Micah installed Signal and found a list of friends and acquaintances. Messages s
 
 ***
 # Facebook
-Micah does not believe any of his friends are alive anymore. This is a listing of his friends on his kelvinewilliams account, which the CIA now controls. 
+Kelvin does not believe any of his friends are alive anymore. This is a listing of his friends on his kelvinewilliams account, which the CIA now controls. 
 
 ![IMG_0899](https://github.com/Mission23/Mission23/assets/140252803/ebb1c2c9-f29a-4b0a-9e64-aed2d4bcdcb4)
 ![IMG_0900](https://github.com/Mission23/Mission23/assets/140252803/c54ea2d5-90fd-45cb-9e7f-49a773455d60)
