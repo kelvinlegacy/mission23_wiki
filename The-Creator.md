@@ -41,6 +41,7 @@ From time to time, when time permits, the Servants of the Creator will take ques
 
 1. What religion should I be?
      - He doesn’t mind and does not support any particular religion. He does not mind if you go to church. He doesn’t mind if you never go to church. 
-     - He knows that people who regularly go to church are overall peaceful beings. Doves. 
+     - He knows that people who regularly go to church are overall peaceful beings (doves).
+          - He caused “When the Doves Cry” to be written by Prince. 
      - The Creator does **hear** all prayers.
-     -  “‘When the Doves Cry’ by Prince that’s not a couple, don’t think sex, think mom and child IN CHURCH. Don’t think four legged animal, think kills for money, beats his wife to a pulp animal. Oh, and that one verse repeated throughout from Pulp Ficion and stuff… Keep thinking about that verse.  And no, He’s definitely no bitch. Stop cherry picking the Bible.”
+    
