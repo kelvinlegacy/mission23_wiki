@@ -4,7 +4,7 @@ Genocide is the intentional destruction of a people in whole or in part. In 1948
 The Bluegrass Genocide started with the African-American Christian population in Lexington, Kentucky, but has now spread to the overall Christian population in the central Kentucky area. 
 
 ## Onset of Genocide 
-Attempted coverup of the massacre of Mount Calvary Baptist Church marks the beginning of the genocide.
+Attempted coverup of [the massacre of Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-CIA-Massacre-of-Mount-Calvary-Baptist-Church) started the genocide.
 
 The plans for the cover-up included, holding funerals for the victims of the massacre. Individuals who contacted the church showing interest in finding their loved ones were later contacted back and notified of their loved one’s death and funeral services arrangements were provided to them. 
 
@@ -15,7 +15,9 @@ Each mourner killed caused new friends and family to call the church, and the cy
 Other ethnic groups are starting to feel the effects of the genocide and the primary targeted group appears to be Christian. Also affected ethnic groups include: Caucasians, Latinos, and Asians. The Bluegrass region of Kentucky is the most impacted, the death toll coming from all over North America. 
 
 ## Death Toll
-There have been over 2000 deaths in the genocide. Victims may not be reported as dead due to other activities by the CIA to hide the deaths. 
+There have been over 2,000 deaths in the genocide. 
+
+Most victims are considered only “missing” legally due to the lack of a body. This is is due to the CIA’s body disposal policies. 
 
 ## The Creator’s Involvement 
 The Creator for the third time in human history has decided to become directly involved in human activities and stop this genocide.
