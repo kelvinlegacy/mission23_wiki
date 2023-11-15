@@ -12,17 +12,19 @@ The Creator cares about life, first and foremost.  He detests the loss of life, 
 
 Many religions specify various sins, further many (including clergy) interpret things as sins that He quite simply doesn't pay attention to.  In the story of Sodom & Gomorrah, people believe He was upset about homosexual activity. 
 
-The Creator urges his servants to tell the world why He was that upset.  Life was in peril for one woman, at a time when no one died.  The servants had to find her quickly to help Him see how bad it was, and whether or not this was a human race problem.  That was the last time this planet should have seen a Multiple Sclerosis or any disease for that matter.  The servants were delayed by the town's people who did not understand why they had come looking for only one woman, and no other would suffice.  They did not understand illness or the servants' need to find her quickly, death was only something that happened when humans did something foolish back then (eg. walking off of a cliff, fighting bears).
+The Creator urges his servants to tell the world why He was that upset.  Life was in peril for one woman, at a time when no one died.  The servants had to find her quickly to help Him see how bad her condition was, and help Him ascertain whether or not her condition was one that could affect others.  
 
-In regards to Sodom & Gomorrah, the Creator does not approve or disapprove of any religious text.  He and servants just have first-hand knowledge of it.  They say, "The human race is pretty much assuming things on incomplete data, the whole story wasn't passed down."  
+That was the last time this planet should have seen a Multiple Sclerosis or any disease for that matter.  The servants were delayed by the town's people who did not understand why they had come looking for only one woman, and no other would suffice.  They did not understand illness or the servants' need to find her quickly, death was only something that happened when humans did something foolish back then (ie. accidents).
 
-His stance on homosexuality is this: "If you are homosexual, please pause every once in a while, at least for an hour, find a member of the opposite sex and reproduce. Then you can resume being homosexual.  I do not mind who one has sex with as long as they are informed and are consenting, only their parents can determine if they are old enough to consent. The next generation is essential for your continued existence as a human race."
+In regards to Sodom & Gomorrah, the Creator does not approve or disapprove of any religious text.  He and servants just have first-hand knowledge of it.  We, the servants, say, "The human race is pretty much assuming things on incomplete data, the whole story wasn't passed down."  
 
-Also, He does not require church and does not mind if you attend.  He thinks people who go to church often are some of the most peaceful people (doves) in the world while inside, but knows church attendance or religion isn't required to be peaceful and loving human beings.
+His stance on homosexuality is this: "If you prefer to engage in sex with members of the same sex, you must remember that the survival of your species requires reproduction. So, occasionally you should find a member of the opposite sex and reproduce. After that you can resume having sex as you wish.  I do not mind who one (or more) has sex with as long as they are informed and give their consent, only the parents of the individual giving their consent can determine if they are old enough to consent."
 
-On death and illness, He says, "Humans wanted to start dying essentially."  
 
-Disease, for example, surfaced in humans just after remedies and potions appeared.  People thought they worked, this caused their brains to stop responding to infectious agents.  All disease, save a couple that are mislabeled as diseases (like Diabetes type I), is infectious in nature.  The Creator says, "Before you think hereditary, think environmental." (The servants will be disseminating  information forthcoming about disease, the immune system, DNA and the subconscious.)
+
+On death and illness, He says, "Improper thinking led to death caused by disease, and stress made cancers what they are today. We have a remedy for the improper thinking since that’s made it into male DNA."  
+
+Disease, for example, surfaced in humans just after remedies and potions appeared in human culture. People thought they worked, this caused their brains to stop responding to infectious agents.  All disease, save a couple that are mislabeled as diseases (like Diabetes type I), is infectious in nature.  The Creator says, "Before you think hereditary, think environmental." (The servants will be disseminating  information forthcoming about disease, the immune system, DNA and the subconscious.)
 
 The Creator say, “Cancer as most ‘human beings’ know it is new. Cancer is not caused by anything external, it is the result of mitosis, and it’s just one bad cell copy. That one bad cell CAN be sped up by external forces beyond the body’s built-in ability to correct it.” 
 
