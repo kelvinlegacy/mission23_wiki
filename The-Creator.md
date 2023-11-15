@@ -26,19 +26,24 @@ To simplify His stance on homosexuality: The Creator does not care with whom you
 ## Life & Death
 The Creator’s design never included death. It does occur, but should only be the result of an accident. 
 
-On disease, the Creator says, “Humanity’s misguided beliefs in technology have caused the rise in human diseases and death.”
+The Creator has several objectives for His servants during mission23 to address death caused by: all diseases, all cancers, and cardiovascular issues. 
 
-By technology He means the snake oils, potions of the past and the pharmaceuticals of today. 
+### Stress
+The Creator says, “Cancer is a new development and directly connected to higher levels of stress.”
+The lifestyles of humans today are full of stress which causes all kinds of issues in the body.  
 
-The Creator say, “Cancer as most ‘human beings’ know it is new arrival. Cancer is not caused by anything external, it is the result of mitosis, and it starts with just one bad cell copy. That one bad cell CAN be sped up by external forces beyond the body’s built-in ability to correct it.” 
+Creator says, "Slow down.  Living does not have to be difficult or stressful.  Do not make it that way for yourself or anyone else."
 
-The Creator reminds us of a song: “Slow down you move to fast, gotta make the morning last…”
-
-Remembering can help us all around. The lifestyles humans live are full stress which cause all kinds of issues in the body.  The Creator says, "Slow down.  Living does not have to be difficult or stressful.  Do not make it that way for yourself or anyone else."
-
-We also need to slow down in other ways also.  The Creator says to human beings, "You cannot kill yourself under your own power."  If you run as fast as you can into a rock wall, you might get some scrapes and bruises, but you will not kill yourself, by design.  If you put a pair roller skates under you, and hit the same wall, your chances of dying have increased.  
+He says humans also need to slow down in other ways also.  The Creator says to human beings, "You cannot kill yourself under your own power."  If you run as fast as you can into a rock wall, you might get some scrapes and bruises, but you will not kill yourself, by design.  If you put a pair roller skates under you, and hit the same wall, your chances of dying have increased.  
 
 When asked what the Creator thought of cars, He said, "Nope."
+
+## In-Person Visits
+The Creator does come to Earth as He can, and does, every place that has conscious life in His Creation. 
+
+The Creator’s visits are generally unannounced even to His servants. 
+
+Recently, He has made numerous visits. The purpose of His visits are CLASSIFIED, details of some may be made public in the future. 
 
 ## FAQs of the Creator
 From time to time, when time permits, the Servants of the Creator will take questions from the Discussions area (or other online forum as announced) and present them to the Creator and post His responses here.
@@ -46,6 +51,6 @@ From time to time, when time permits, the Servants of the Creator will take ques
 1. What religion should I be?
      - He doesn’t mind and does not support any particular religion. He does not mind if you go to church. He doesn’t mind if you never go to church. 
      - He knows that people who regularly go to church are overall peaceful beings (doves).
-          - He caused “When the Doves Cry” to be written by Prince. 
-     - The Creator does **hear** all prayers.
+          - He caused “When the Doves Cry” to be written by Prince, the song is only about [the CIA’s massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-CIA-Massacre-of-Mount-Calvary-Baptist-Church). 
+     - The Creator does **hear** all prayers and deep thoughts. 
     
