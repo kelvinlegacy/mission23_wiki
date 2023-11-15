@@ -17,16 +17,12 @@ Other ethnic groups are starting to feel the effects of the genocide and the pri
 ## Death Toll
 There have been over 2,000 deaths in the genocide. 
 
-Most victims are considered only “missing” legally because their body hasn’t been recovered. This is due to the CIA’s body disposal practices. 
+The CIA’s body disposal practices leave no trace of most of their victims. As a result, with almost all of the death toll the victim is only considered “missing” legally. 
 
 ## The Creator’s Involvement 
 The Creator for the third time in human history has decided to become directly involved in human activities and stop this genocide.
 
-The Creator does not normally intervene in human interactions, that is because conscious entities like human beings always escalate when things don’t go as planned. For example, when you’re hammering a nail and the nail isn’t going in, you change your grip and swing the hammer harder. Which mean you can end up with a sore thumb. 
-
-If an unseen force prevents you from doing what you want to do then you woukd escalate in your activity. Therefore, whenever humans need help, He sends His servants in. His servants are just doing what He wants done, and humanity needs done. 
-
-The Creator can see the future clearly. The Creator said once, “If you know all the ac actors, you know the situation or environment, you know exactly how it’s going to end.”
+The Creator can see the future clearly. The Creator said once, “If you know all the actors, you know the situation or environment, you know exactly how it’s going to end.”
 
 If the genocide progresses as it is currently going there will be no one left in the United States except for CIA.  
 
