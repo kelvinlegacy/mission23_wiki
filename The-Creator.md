@@ -1,18 +1,34 @@
 _**Editor's Note:**  I've been working for the Creator for over six billion Earth years.  I still do not know a damn thing about Him.  Oh, I know Him, far better than everyone else on the planet except for maybe Thomas.  But I still never know what He is gonna do or say about anything.  He's predictable and not at the exact same time.  I believe this article is best if we do a Q&A with the Creator and make it a FAQ._ 
 ***
-He is the Creator (always stylized with a upper-case C) , He is often called "The Creator of the Universe," "The Alpha and the Omega," and "The Great I Am."  His two most popular names at today are, "Allah" and "God.” As a religion emerges, especially any monotheistic one, His name has been created and He has answered calls (prayers) to it, even “Ramen.” 
+He is the Creator (always stylized with a upper-case C) , He is often called "The Creator of the Universe," "The Alpha and the Omega," and "The Great I Am."  His two most popular names at today are, "Allah" and "God.” As a religion emerges, especially any monotheistic one, anytime He has been given a new nameHis He has answered calls (prayers) to it, even “Ramen.” 
 
 A common question of, or thought about the Creator is: "Why did you create the Universe?"  The Creator says, "I had to."  He later adds, "It's way more than the total of what you all consider the universe, and that is way more than you can imagine."
 
-One of the first questions of the Creator is, "Is this a sin?"  He says, if you are worried about living right in His eyes, you'd follow the Ten Commandments, and maybe add one more: "Thou shalt have fun, often." The Creator cares about life, first and foremost.  He detests the loss of life, regardless of the manner of death.  Many religions specify various sins, further many (including clergy) interpret things as sins that He quite simply doesn't pay attention to.  In the story of Sodom & Gomorrah, people believe He was upset about homosexual activity.  His stance on homosexuality is this: "Please pause every once and a while, at least for an hour, find a member of the opposite sex and reproduce. Then you can resume.  The next generation is essential for your continued existence as a human race."
+One of the first questions of the Creator is, "Is this a sin?"  He says, if you are worried about living right in His eyes, all you need to do is follow the Ten Commandments. 
+
+The Creator says, “Life should be fun. That’s how I intended it to be. So if you need to, add one more commandment: ‘Thou shalt have fun, often.’”
+
+The Creator cares about life, first and foremost.  He detests the loss of life, regardless of the manner of death.  
+
+Many religions specify various sins, further many (including clergy) interpret things as sins that He quite simply doesn't pay attention to.  In the story of Sodom & Gomorrah, people believe He was upset about homosexual activity. 
 
 The Creator urges his servants to tell the world why He was that upset.  Life was in peril for one woman, at a time when no one died.  The servants had to find her quickly to help Him see how bad it was, and whether or not this was a human race problem.  That was the last time this planet should have seen a Multiple Sclerosis or any disease for that matter.  The servants were delayed by the town's people who did not understand why they had come looking for only one woman, and no other would suffice.  They did not understand illness or the servants' need to find her quickly, death was only something that happened when humans did something foolish back then (eg. walking off of a cliff, fighting bears).
 
-In regards to Sodom & Gomorrah, the Creator does not approve or disapprove of any religious text.  He and servants just have first-hand knowledge of it.  They say, "The human race is pretty much assuming things on incomplete data, the whole story wasn't passed down."  Also, He does not require church and does not mind if you attend.  He thinks people who go to church often are some of the most peaceful people in the world, but knows it isn't required to be peaceful and loving human beings.
+In regards to Sodom & Gomorrah, the Creator does not approve or disapprove of any religious text.  He and servants just have first-hand knowledge of it.  They say, "The human race is pretty much assuming things on incomplete data, the whole story wasn't passed down."  
 
-He says, "Humans wanted to start dying essentially."  Disease, for example, surfaced in humans just after remedies and potions appeared.  People thought they worked, this caused their brains to stop responding to infectious agents.  All disease, save a couple that are mislabeled as diseases (like Diabetes type I), is infectious in nature.  The Creator says, "Before you think hereditary, think environmental." (The servants will be disseminating  information forthcoming about disease, the immune system, DNA and your subconscious.)
+His stance on homosexuality is this: "If you are homosexual, please pause every once in a while, at least for an hour, find a member of the opposite sex and reproduce. Then you can resume being homosexual.  I do not mind who one has sex with as long as they are informed and are consenting, only their parents can determine if they are old enough to consent. The next generation is essential for your continued existence as a human race."
 
-Cancer is new.  Cancer is not caused by anything, they CAN be sped up beyond the body's ability to handle them (built into every cell in the body, by design).  The Creator reminds us of an old song, that can help us all around. The lifestyles humans live are full stress which cause all kinds of issues in the body.  The Creator says, "Slow down.  Living does not have to be difficult or stressful.  Do not make it that way for yourself or anyone else."
+Also, He does not require church and does not mind if you attend.  He thinks people who go to church often are some of the most peaceful people (doves) in the world while inside, but knows church attendance or religion isn't required to be peaceful and loving human beings.
+
+On death and illness, He says, "Humans wanted to start dying essentially."  
+
+Disease, for example, surfaced in humans just after remedies and potions appeared.  People thought they worked, this caused their brains to stop responding to infectious agents.  All disease, save a couple that are mislabeled as diseases (like Diabetes type I), is infectious in nature.  The Creator says, "Before you think hereditary, think environmental." (The servants will be disseminating  information forthcoming about disease, the immune system, DNA and the subconscious.)
+
+The Creator say, “Cancer as most ‘human beings’ know it is new. Cancer is not caused by anything external, it is the result of mitosis, and it’s just one bad cell copy. That one bad cell CAN be sped up by external forces beyond the body’s built-in ability to correct it.” 
+
+The Creator reminds us of a song: “Slow down you move to fast, gotta make the morning last…”
+
+Remembering can help us all around. The lifestyles humans live are full stress which cause all kinds of issues in the body.  The Creator says, "Slow down.  Living does not have to be difficult or stressful.  Do not make it that way for yourself or anyone else."
 
 We also need to slow down in other ways also.  The Creator says to human beings, "You cannot kill yourself under your own power."  If you run as fast as you can into a rock wall, you might get some scrapes and bruises, but you will not kill yourself, by design.  If you put a pair roller skates under you, and hit the same wall, your chances of dying have increased.  
 
