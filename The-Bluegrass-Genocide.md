@@ -17,7 +17,7 @@ Other ethnic groups are starting to feel the effects of the genocide and the pri
 ## Death Toll
 There have been over 2,000 deaths in the genocide. 
 
-Most victims are considered only “missing” legally due to the lack of a body. This is is due to the CIA’s body disposal policies. 
+Most victims are considered only “missing” legally because their body hasn’t been recovered. This is due to the CIA’s body disposal practices. 
 
 ## The Creator’s Involvement 
 The Creator for the third time in human history has decided to become directly involved in human activities and stop this genocide.
