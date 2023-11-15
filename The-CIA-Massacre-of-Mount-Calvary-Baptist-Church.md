@@ -56,10 +56,10 @@ No religious or other services will be held or performed at the church located a
 **No member of the general public should visit Mount Calvary Baptist Church until they have seen the press conference from the front steps of the church on both the  local and evening world news of the massacre.**
 
 ## Impersonation Notice
-Micah has written an open letter to the CIA for using impersonators of him and his slain family members to further these attacks. This is required reading to understand how far the government will go to cover this up. Please forgive the language and the rushed nature of the letter. [Click here to read it](https://github.com/Mission23/Mission23/wiki/Pastoral-Anniversary).
+Micah has written an article on Medium regarding a recent event held on the church’s property. [Read on Medium.com](https://medium.com/@micahthemf/40th-pastoral-anniversary-9ce004764732).
 
 ## CLASSIFIED
-Out of His concern for the emotional wellbeing of all humanity, the Creator has CLASSIFIED certain details of this event. 
+Out of His concern for the emotional wellbeing of all humanity, the Creator has CLASSIFIED certain aspects of this event. 
 
 ***
 # The Massacre at Mount Calvary Baptist Church
