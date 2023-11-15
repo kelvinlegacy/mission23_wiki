@@ -4,29 +4,33 @@ He is the Creator (always stylized with a upper-case C) , He is often called "Th
 
 A common question of, or thought about the Creator is: "Why did you create the Universe?"  The Creator says, "I had to."  He later adds, "It's way more than the total of what you all consider the universe, and that is way more than you can imagine."
 
+
 One of the first questions of the Creator is, "Is this a sin?"  He says, if you are worried about living right in His eyes, all you need to do is follow the Ten Commandments. 
 
 The Creator says, “Life should be fun. That’s how I intended it to be. So if you need to, add one more commandment: ‘Thou shalt have fun, often.’”
 
 The Creator cares about life, first and foremost.  He detests the loss of life, regardless of the manner of death.  
 
-Many religions specify various sins, further many (including clergy) interpret things as sins that He quite simply doesn't pay attention to.  In the story of Sodom & Gomorrah, people believe He was upset about homosexual activity. 
+## The Creator’s Intervention 
+The Creator does not normally intervene in human interactions, that is because conscious entities like human beings always escalate when things don’t go as planned. For example, when you’re hammering a nail and the nail isn’t going in, you change your grip and swing the hammer harder. Which mean you can end up with a sore thumb. 
 
-The Creator urges his servants to tell the world why He was that upset.  Life was in peril for one woman, at a time when no one died.  The servants had to find her quickly to help Him see how bad her condition was, and help Him ascertain whether or not her condition was one that could affect others.  
+If an unseen force prevents you from doing what you want to do then you woukd escalate in your activity. Therefore, whenever humans need help, He sends His servants in. His servants are just doing what He wants done, and humanity needs done. 
 
-That was the last time this planet should have seen a Multiple Sclerosis or any disease for that matter.  The servants were delayed by the town's people who did not understand why they had come looking for only one woman, and no other would suffice.  They did not understand illness or the servants' need to find her quickly, death was only something that happened when humans did something foolish back then (ie. accidents).
+## Homosexuality 
+Most base their views on what they think His views are based on what happened in Sodom & Gomorrah. 
 
-In regards to Sodom & Gomorrah, the Creator does not approve or disapprove of any religious text.  He and servants just have first-hand knowledge of it.  We, the servants, say, "The human race is pretty much assuming things on incomplete data, the whole story wasn't passed down."  
+Micah has written about this on Medium. See [Micah’s article here](https://medium.com/@micahthemf/what-really-happened-in-sodom-and-gomorrah-a2ecb52f99e8).
 
-His stance on homosexuality is this: "If you prefer to engage in sex with members of the same sex, you must remember that the survival of your species requires reproduction. So, occasionally you should find a member of the opposite sex and reproduce. After that you can resume having sex as you wish.  I do not mind who one (or more) has sex with as long as they are informed and give their consent, only the parents of the individual giving their consent can determine if they are old enough to consent."
+To simplify His stance on homosexuality: The Creator does not care with whom you have sex with as long as they are informed and have provided their consent. He does wish that those who routinely engage in sex with the same sex will consider (at least once a year) engaging in sex with the opposite sex for the purposes of conceiving a child. Reproduction is essential to the survival of the human race.
 
+## Life & Death
+The Creator’s design never included death. It does occur, but should only be the result of an accident. 
 
+On disease, the Creator says, “Humanity’s misguided beliefs in technology have caused the rise in human diseases and death.”
 
-On death and illness, He says, "Improper thinking led to death caused by disease, and stress made cancers what they are today. We have a remedy for the improper thinking since that’s made it into male DNA."  
+By technology He means the snake oils, potions of the past and the pharmaceuticals of today. 
 
-Disease, for example, surfaced in humans just after remedies and potions appeared in human culture. People thought they worked, this caused their brains to stop responding to infectious agents.  All disease, save a couple that are mislabeled as diseases (like Diabetes type I), is infectious in nature.  The Creator says, "Before you think hereditary, think environmental." (The servants will be disseminating  information forthcoming about disease, the immune system, DNA and the subconscious.)
-
-The Creator say, “Cancer as most ‘human beings’ know it is new. Cancer is not caused by anything external, it is the result of mitosis, and it’s just one bad cell copy. That one bad cell CAN be sped up by external forces beyond the body’s built-in ability to correct it.” 
+The Creator say, “Cancer as most ‘human beings’ know it is new arrival. Cancer is not caused by anything external, it is the result of mitosis, and it starts with just one bad cell copy. That one bad cell CAN be sped up by external forces beyond the body’s built-in ability to correct it.” 
 
 The Creator reminds us of a song: “Slow down you move to fast, gotta make the morning last…”
 
