@@ -29,7 +29,9 @@ If the genocide progresses as it is currently going there will be no one left in
 While this may sound good for CIA affiliated persons, eventually it would only be those who rank at the CIA. Seeing what he has the creator has added to the objectives for the Creator’s mission23 for life on Earth have been updated to address this genocide. 
 
 ## Preventing a Church Attack
-* From what We know, there are 7 things you can do to protect your church family the next time your church doors are open.
+We know from the Mount Calvary massacre their tactics. We also know they are planning more attacks on Christians during services in their churches. 
+
+There are 7 things you can do to protect your church family the next time your church doors are open.
 * Use a cellphone and stream your services. Get some of your sick and shut in online and watching. If that stream is interrupted make sure they know to call the church, but if someone doesn’t answer and confirm a technical problem, do not hesitate to call the police.
 * Buy some walkie talkies. Due to technology they have used you cannot trust cell phones when they launch an attack. Depending on the size of your church’s property you should be able to do this for $50 or less.
 * Each service have one member patrolling the outside of the church. If they see a group forming outside alert the member inside (by walkie). They should then immediately interrupt services, and lock the doors.
