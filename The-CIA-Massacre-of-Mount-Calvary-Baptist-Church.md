@@ -21,6 +21,12 @@ Always check your Internet browsers address bar!  When getting information from 
 
 There is only one place you can obtain information about the Mount Calvary Baptist Church Memorial Foundation or the Servants of the Creator (SotC) that is [https://GitHub.com/Mission23](https://github.com/Mission23). All of our domain names (ie. SotC.wiki, CIAMassacre.site and CIAKill.site) will automatically redirect to [https://github.com/Mission23](https://github.Com/Mission23). Make sure it begins with “https://github.com/mission23/“) be check your address bar (see image above, iOS/iPhone shown), you may have to tap the address bar for the full address to be shown.  
 
+From time-to-time Micah may write an article covering any task or objective during the mission. The only place the Creator has allowed him to use is Medium. You can find him there by going to [medium.com/@micahthemf](). Articles are not intended to replace the informational or educational information provided via our wiki. 
+
+If you need to settle an argument or cite something, see this wiki. 
+
+If you need a very high-level summary of something we are involved with to share with others, Medium is a good bet. 
+
 Make sure that’s the site where you are when reading about Mount Calvary Baptist Church, failure to do so can result in you consuming bad information. 
 
 ## Always Pray to Verify 
