@@ -152,7 +152,7 @@ The call takers were told for the operation to act as true 911 call takers, act 
 
 Inside the normally peaceful sanctuary became hell almost immediately as the CIA’s personnel became animals. They raped, pillaged and terrorized the congregation. Parents did everything to shield their children from the things going on around them. 
 
-In the remote church__ members of the congregation, in a two by two manner, were taken to the front of the church and beheaded using chainsaws at the piano and organ’s benches. 
+In the remote church, far from routine police visits and while following the orders of Annie Jacobsen the CIA’s personnel began killing. Members of the congregation were taken to the front of the church and beheaded using chainsaws at the piano and organ’s benches. 
 
 The bodies of those slain were placed in the baptismal which is at the front of the church. The baptismal’s water had a formulation added to it which made it chemically cremate the bodies. 
 
