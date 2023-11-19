@@ -118,15 +118,17 @@ Four men armed with shotguns quietly entered the church through the exterior doo
 
 The rear entrances are the lesser used entrances with the women’s anteroom being the one generally used due to the layout of the parking lot. During services, the doors between the anterooms to the sanctuary are closed to prevent interruptions from other activities in the rear of the church. 
 
-Simultaneously, the group that was waiting outside came from the rear parking lot of the church and gathered in the vestibule and on the front steps of the church undetected by the congregation. 
+Simultaneously, the group that was waiting outside came from the rear parking lot of the church and gathered outside on the front steps of the church, largely undetected by the congregation. 
 
 ![Floorplan of Mount Calvary Baptist Church](https://github.com/Mission23/Mission23/blob/master/assets/floorplan.png)
 
-Within the sanctuary, congregants noticed what appeared to be men amassing outside the windows on the western side of the church that runs along Pricetown Lane. It gave the congregants that seen it the sense that the church was being surrounded, unnerving some.  
+Jacobsen got up from her seat in the sanctuary and went outside and met up with the team gathering in front of the church. 
 
-Most of the congregation jumped to its feet when they heard the noise from the group gathering in the vestibule. They were alarmed by the number of people in the small room that normally has no more than five or so waiting at any given time. Also by the fact that by that point, late in the service, usually no one is trying to enter the sanctuary. Some in the congregation thought it was a law enforcement action. 
+Within the sanctuary, congregants noticed what appeared to be men amassing outside the windows on the western side of the church that runs along Pricetown Lane and in front of the church through opened windows. It gave the congregants that seen it the sense that the church was being surrounded, unnerving some.  
 
-Annie Jacobsen stood up, walked to the rear of the sanctuary, and joined the group inside the vestibule. She obtained a bullhorn from the only other woman in the group, and announced that she absolutely hated the service and that everyone in the church needed to die. 
+Most of the congregation jumped to its feet when they heard the noise from the group gathering in the vestibule. They were alarmed by the number of people in the small room that normally has no more than five or so waiting at any given time. Also by the fact that by that point, late in the service, usually no one is trying to enter the sanctuary. 
+
+Jacobsen had obtained a bullhorn outside and announced that she absolutely hated the service and that everyone in the church needed to die. 
 
 At that point, the individuals who were in the anterooms in the back of the church, opened the doors to the sanctuary with their shotguns at the ready, and the group that had amassed in the vestibule loudly entered the sanctuary. They hurled racial slurs that made the congregation realize that their entrance was not any law enforcement action. 
 
