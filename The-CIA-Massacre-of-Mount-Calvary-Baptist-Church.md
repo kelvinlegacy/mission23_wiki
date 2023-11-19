@@ -73,14 +73,13 @@ Out of His concern for the emotional wellbeing of all humanity, the Creator has 
 
 A small church on Todds Road in remote Lexington, Kentucky is the site of the largest massacre inside of a church in US history.
 
-It began during morning services the first Sunday in April 2023 when everyone in attendance was killed. 
-The massacre’s coverup has started a genocide.
+It began during morning services the first Sunday in April 2023 when everyone in attendance was killed. Approximately 125 people died that Sunday. The massacre’s coverup has started a genocide referred to as the [Bluegrass Genocide](https://github.com/mission23/mission23/wiki/The-CIA-Massacre-of-Mount-Calvary-Baptist-Church) by the SotC. The massacre was one event in a larger tragedy that has affected every country on Earth and almost every human being on Earth.  
 
-The death toll from the subsequent genocide, which is ongoing, comes from families and friends of the initial victims of the massacre that attended funerals held at the church. Mourners were provided the time and date of a funeral as a response to a call to the church inquiring whether a loved one had been seen.
+The death toll from the subsequent genocide, which is ongoing, comes from families and friends of the initial victims of the massacre that attended funerals held at the church. People calling the church looking for loved ones are provided funeral arrangements on a return call. The funeral is 
 
 The church is the first logical place any rational person would call, likely before the police. It’s a church and the last place their loved one said they were going before they vanished.
 
-The time and date provided was never for one particular person, and a person may have had as many as ten funerals. As each wave of funerals passed, the death toll drastically increased.
+The time and date provided for a funeral, was never for one particular person, the funeral’s date and time is determined by the “work” schedule—when the CIA would have the staff on-hand to commit the murders. So, a person may have had as many as ten funerals reported to callers. As each wave of funerals passed, the death toll drastically increased.
 
 Additional deaths have occurred after individuals made reports of missing friends and family members.
 More than 125 men, women and children were killed that first Sunday, and over 1,000 lives in total have been lost.
