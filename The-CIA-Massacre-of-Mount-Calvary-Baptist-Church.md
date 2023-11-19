@@ -150,9 +150,9 @@ The call takers were told for the operation to act as true 911 call takers, act 
 
 911 callers from within the sanctuary provided address information, a description of the activity inside the church and call back numbers. They were told emergency services were en-route and hung up on—-something rarely done by actual 911 call takers. 
 
-Inside the normally peaceful sanctuary became hell almost immediately as the CIA’s personnel raped, pillaged and terrorized the congregation. Parents did everything to shield their children from the things going on around them. 
+Inside the normally peaceful sanctuary became hell almost immediately as the CIA’s personnel became animals. They raped, pillaged and terrorized the congregation. Parents did everything to shield their children from the things going on around them. 
 
-The CIA’s personnel became animals in the sanctuary of the remote church. Members of the congregation, in a two by two manner, were taken to the front of the church and beheaded using chainsaws at the piano and organ’s benches. 
+In the remote church__ members of the congregation, in a two by two manner, were taken to the front of the church and beheaded using chainsaws at the piano and organ’s benches. 
 
 The bodies of those slain were placed in the baptismal which is at the front of the church. The baptismal’s water had a formulation added to it which made it chemically cremate the bodies. 
 
