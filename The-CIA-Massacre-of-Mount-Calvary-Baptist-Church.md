@@ -78,7 +78,7 @@ Out of His concern for the emotional wellbeing of all humanity, the Creator has 
 
 A small church on Todds Road in remote Lexington, Kentucky is the site of the largest massacre inside of a church in US history.
 
-It began during morning services the first Sunday in April 2023 when everyone in attendance was killed. Approximately 125 people died that Sunday. The massacre’s coverup has started a genocide referred to as the [Bluegrass Genocide](https://github.com/mission23/mission23/wiki/The-CIA-Massacre-of-Mount-Calvary-Baptist-Church) by the SotC. The massacre was one event in a larger tragedy that has affected every country on Earth and almost every human being on Earth.  
+It began during morning services the first Sunday in April 2023 when everyone in attendance was killed. Approximately 125 people died that Sunday. The massacre’s coverup has started a genocide referred to as the [Bluegrass Genocide](https://github.com/mission23/mission23/wiki/The-Bluegrass-Genocide) by the SotC. The massacre was one event in a larger tragedy that has affected every country on Earth and almost every human being on Earth.  
 
 The death toll from the subsequent genocide, which is ongoing, comes from families and friends of the initial victims of the massacre that attended funerals held at the church. People calling the church looking for loved ones are provided funeral arrangements on a return call. The funeral is 
 
