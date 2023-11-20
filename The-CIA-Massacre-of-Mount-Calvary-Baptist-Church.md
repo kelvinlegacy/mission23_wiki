@@ -84,7 +84,7 @@ The death toll from the subsequent genocide, which is ongoing, comes from famili
 
 The church is the first logical place any rational person would call, likely before the police. It’s a church and the last place their loved one said they were going before they vanished.
 
-The time and date provided for a funeral, was never for one particular person, the funeral’s date and time is determined by the “work” schedule—when the CIA would have the staff on-hand to commit the murders. So, a person may have had as many as ten funerals reported to callers. As each wave of funerals passed, the death toll drastically increased.
+The time and date provided for a funeral, was never for one particular victim, the funeral’s date and time is determined by the “work” schedule—when the CIA would have the staff on-hand to commit the murders. So, a victim may have had as many as ten funerals reported to callers. As each wave of funerals passed, the death toll drastically increased.
 
 Additional deaths have occurred after individuals made reports of missing friends and family members.
 More than 125 men, women and children were killed that first Sunday, and over 1,000 lives in total have been lost.
