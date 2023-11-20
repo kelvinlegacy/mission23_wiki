@@ -1,4 +1,3 @@
-# The CIA Massacre of Mount Calvary Baptist Church
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia
 
 The article begins after the warnings. These are necessary to keep readers and interested parties safe from harm. 
@@ -17,17 +16,23 @@ We have provided screenshots of the charade’s videos they are producing. They 
 ## Getting Information Online
 Always check your Internet browsers address bar!  When getting information from the SotC or anything that quotes the Creator (capital C) directly. 
 
+### GitHub
+GitHub is the SotC’s only permanent and primary online presence for Mission 23. GitHub is also hosts the original repository, which we still update: https://github.com/MCBCMF/MCBCMassacre. 
+
 ![IMG_0691](https://github.com/Mission23/MCBCMassacre/assets/140252803/b9f4d7b9-04b8-452e-8d7e-d71a6db8fce6)
 
-There is only one place you can obtain information about the Mount Calvary Baptist Church Memorial Foundation or the Servants of the Creator (SotC) that is [https://GitHub.com/Mission23](https://github.com/Mission23). All of our domain names (ie. SotC.wiki, CIAMassacre.site and CIAKill.site) will automatically redirect to [https://github.com/Mission23](https://github.Com/Mission23). Make sure it begins with “https://github.com/mission23/“) be check your address bar (see image above, iOS/iPhone shown), you may have to tap the address bar for the full address to be shown.  
+At the current time, there is only one definitive place you can obtain the best information about this  massacre that is: [https://GitHub.com/Mission23](https://github.com/Mission23). 
 
+Regardless of the link you take to reach here, make sure your make sure it begins with “https://github.com/mission23/“ be check your address bar (see image above, iOS/iPhone shown), you may have to tap the address bar for the full address to be shown.  
+
+Make sure that’s the site where you are when reading about Mount Calvary Baptist Church, failure to do so can result in you consuming bad information. 
+
+### Medium
 From time-to-time Micah may write an article covering any task or objective during the mission. The only place the Creator has allowed him to use is Medium. You can find him there by going to [medium.com/@micahthemf](). Articles are not intended to replace the informational or educational information provided via our wiki. 
 
 If you need to settle an argument or cite something, see this wiki. 
 
 If you need a very high-level summary of something we are involved with to share with others, Medium is a good bet. 
-
-Make sure that’s the site where you are when reading about Mount Calvary Baptist Church, failure to do so can result in you consuming bad information. 
 
 ## Always Pray to Verify 
 On a personal note, we’ve never seen Him this angry. That’s over 6 billion years of service. He wants you to pray, and if you don’t pray, think really hard about any site you visit or information you consume about Mount Calvary Baptist Church. 
@@ -86,7 +91,7 @@ More than 125 men, women and children were killed that first Sunday, and over 1,
 
 ## Location
 
-Mount Calvary Baptist Church is located at 4742 Todds Road in Lexington, KY.  The church is in a remote area of Lexington with very low traffic and very few, if any, routine police patrols.
+Mount Calvary Baptist Church is located at 4742 Todds Rd. in Lexington, KY.  The church is in a remote area of Lexington with very low traffic and very few, if any, routine police patrols.
 
 The city of Lexington spans every square inch of Fayette county. The location of Mount Calvary Baptist Church almost makes it ideal for such a massacre. The church’s address conveys city, however, if Fayette county were any other county, the church would be in a rural suburb called Pricetown. (See [Google Maps](https://maps.app.goo.gl/nZgjiHDMm8bGsM2e7?g_st=ic))
 
