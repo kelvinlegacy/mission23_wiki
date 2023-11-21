@@ -7,7 +7,7 @@ Each and every song on this compilation album is about the last days of Micah (t
 The compilation’s title is for the number of “hits” Kelvin was taking everyday from the CIA and Main, his “B-side” who many started calling “Baby” who would work with the CIA by making Kelvin unconscious.
 
 ### When the Doves Cry
-This song is only about the CIA’s  massacre at Mount Calvary Baptist Church in Lexington, Kentucky. 
+This song is only about [the CIA’s  massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-CIA-Massacre-of-Mount-Calvary-Baptist-Church) in Lexington, Kentucky. 
 
 The song provides many details as to the massacre and the horror that unfolded in the church. 
 
