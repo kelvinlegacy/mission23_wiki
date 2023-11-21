@@ -35,7 +35,8 @@ The correspondence between Micah and the CIA’s ran church follows, the SotC ha
     - [[Read the Letter (PDF)]](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230629_kew_cease_and_desist_response.pdf)
 
 * [Micah was served with an Order of Protection.](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230731_served_oop.pdf)
-    - Received by Clayton County Sheriff’s Deputy moments after committing a PDF of Cease & Desist letter (converted from HEIC format)
+    - The victim would be the Rev. Dr. Felix G. Williams, III grandfather, who is long deceased. 
+    - Received by Clayton County Sheriff’s Deputy moments after committing a PDF of Cease & Desist letter (converted from HEIC format) to the repository. The original couldn’t be opened my everyone. 
     - From Fayette County Sheriff. Something Micah (from neighboring Jessamine County) never heard of, Lexington only has police.
     - Micah unable to find any court hearing.  The website didn’t look like an true court’s website.
     - [[Read Order (PDF)]](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20230731_served_oop.pdf)
