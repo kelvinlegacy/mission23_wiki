@@ -15,11 +15,9 @@ The listener should imagine a parent  trying to comfort her children. Trying to 
 
 In the refrain, listeners hear the actual thoughts and prayers heard by the Creator that members of the congregation made as they waited for help that never came. Calls to 911 were diverted from Lexington’s emergency services and answered by CIA personnel who acted as though they were sending help. 
 
-“2-4” is not a count, but the Creator expressing his anger at Main for providing the name of the church to the CIA when Kelvin was unconscious. 
-
-Main also guaranteed that Kelvin would not be a problem on the day of the massacre by causing him to be arrested. 
+“2-4” is not a count, but the Creator expressing his anger at Main for providing the name of the church to the CIA when Kelvin was unconscious. Main also guaranteed that Kelvin would not be a problem on the day of the massacre by causing him to be arrested. 
 
 ### Controversy
-This song is the controversy the CIA tries to manufacture surroundings the separation of Kelvin and Main, and the Servants, Micah and Thomas. 
+This song is the controversy the CIA tries to manufacture surroundings the separation of Micah (then Kelvin) and Main, and the Servants, Micah and Thomas. 
 
 
