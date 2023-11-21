@@ -10,7 +10,14 @@ The letter was completed the following day at Atlanta’s Central Library while 
 
 The purpose of the first letter was to take control of the church, name a interim pastor to invite law enforcement in the Commonwealth of Kentucky into the church to investigate the massacre, additionally Micah wanted to ensure that no other persons visiting Mount Calvary Baptist Church would be harmed since it was apparent to him and the Creator advised him that it was still being used to capture and kill any members who were not present on the first Sunday.
 
-Micah has stated since the first letter was written, that upon receiving a DNA test he would immediately step down as pastor and reinstall Rev. Dr. Felix G. Williams, III, essentially installing himself as pastor was purely temporary.  Now that it is evident the massacre occurred, once he has removed all of CIA and government actors and activities from church grounds, he plans to rescind the letter making it null and void.  While an ordained minister, Micah never wanted to pastor a church, and only installed himself for Constitutional reasons and he was the only member of the church the Creator wanted identified.
+Micah has stated since the first letter was written, that upon receiving a DNA test he would immediately step down as pastor and reinstall Rev. Dr. Felix G. Williams, III, essentially installing himself as pastor was purely temporary.  Now that it is evident the massacre occurred, once he has removed all of CIA and government actors and activities from church grounds, he plans to rescind the letter making it null and void.  While an ordained minister, Micah never wanted to pastor a church, and only installed himself for Constitutional reasons. 
+
+The Creator had confirmed, Micah is the only living member of Mount Calvary Baptist Church. 
+
+The CIA is still operating their Mount Calvary Missionary Baptist Church, Inc. in and on the property owned by Mount Calvary Baptist Church. 
+
+## Missionary
+The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was the CIA’s response to the Creator’s **Mission** 23 for Life on Earth. 
 
 # Correspondence
 
