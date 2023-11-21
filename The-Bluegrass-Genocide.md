@@ -3,6 +3,8 @@ Genocide is the intentional destruction of a people in whole or in part. In 1948
 # The Bluegrass Genocide
 The Bluegrass Genocide started with the African-American Christian population in Lexington, Kentucky, but has now spread to the overall Christian population in the central Kentucky area. 
 
+![IMG_1665](https://github.com/mission23/mission23/assets/140292625/dfa60d48-5edb-4f71-8258-415e3af4ca2e)
+
 ## Onset of Genocide 
 Attempted coverup of [the massacre of Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-CIA-Massacre-of-Mount-Calvary-Baptist-Church) started the genocide.
 
