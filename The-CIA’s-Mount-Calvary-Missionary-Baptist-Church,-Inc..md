@@ -1,3 +1,17 @@
+When Micah (born: Kelvin Eugene Williams), a lifelong member of the Mount Calvary Baptist Church, learned of the massacre and viewed photos and videos posted on the Mount Calvary Missionary Baptist Church’s Facebook page, he immediately wrote a letter to his pastor the Rev. Dr. Felix G. Williams, III.  
+
+The correspondence received in response to Micahs letter and actions of the CIA before and after the initial letter clearly indicate to him that they in fact did conduct the massacre.
+
+To write the first letter Micah visited a public library in Riverdale, GA on May 5th, 2023.  While using a public computer, Micah had numerous attempts on his life, his letter was modified before his eyes by someone (he believes the NSA) using an administrator’s session of VMWare Horizons (a PCOIP platform).  At 14:30 EDT He left the library at the Creator’s instruction as military aircraft were approaching.  
+
+It is the policy of the Creator that the SotC never flee danger, however He instructed Micah to do so due to the number of lives that could have been lost in the library and the apartment complex behind it.
+
+The letter was completed the following day at Atlanta’s Central Library while Micah was surrounded by CIA personnel and additional attempts to take his life were made.
+
+The purpose of the first letter was to take control of the church, name a interim pastor to invite law enforcement in the Commonwealth of Kentucky into the church to investigate the massacre, additionally Micah wanted to ensure that no other persons visiting Mount Calvary Baptist Church would be harmed since it was apparent to him and the Creator advised him that it was still being used to capture and kill any members who were not present on the first Sunday.
+
+Micah has stated since the first letter was written, that upon receiving a DNA test he would immediately step down as pastor and reinstall Rev. Dr. Felix G. Williams, III, essentially installing himself as pastor was purely temporary.  Now that it is evident the massacre occurred, once he has removed all of CIA and government actors and activities from church grounds, he plans to rescind the letter making it null and void.  While an ordained minister, Micah never wanted to pastor a church, and only installed himself for Constitutional reasons and he was the only member of the church the Creator wanted identified.
+
 # Correspondence
 
 The correspondence between Micah and the CIA’s ran church follows, the SotC has placed copies of it in the repository which you can, and should, view by clicking the link below the summaries.
