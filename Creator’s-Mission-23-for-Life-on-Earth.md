@@ -1,2 +1,2 @@
 # Current Status
-Preempted by the Creator to so He may address [[the Massacre of Mount Calvary Baptist Church|The Massacre of Mount Calvary Baptist Church]], and subsequent [[Bluegrass Genocide|Bluegrass Genocide]] that is ongoing.
+Preempted by the Creator to so He may address [[the Massacre of Mount Calvary Baptist Church|The Massacre of Mount Calvary Baptist Church]], and subsequent [[The Bluegrass Genocide|The Bluegrass Genocide]] that is ongoing.
