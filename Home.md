@@ -2,7 +2,7 @@
 
 # Welcome to sotC.wiki
 
-You’ve reached the Servants of the Creator mission23 wiki either because of [the Massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-of-Mount-Calvary-Baptist-Church) or because the Creator decided to *ring the bell* and **you felt it** (the bell is planet Earth), and you want to know more about [the ringing of the bell](https://github.com/mission23/mission23/wiki/The-Ringing-Of-The-Bell).
+You’ve reached the Servants of the Creator mission23 wiki either because of [the Massacre of Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-of-Mount-Calvary-Baptist-Church) or because the Creator decided to *ring the bell* and **you felt it** (the bell is planet Earth), and you want to know more about [the ringing of the bell](https://github.com/mission23/mission23/wiki/The-Ringing-Of-The-Bell).
 
 ## Pray To Verify 
 #PrayToVerify is a hashtag used by the Servants of the Creator in online forums.  Readers of information posted by one of the Servants should pray to verify its authenticity and/or truthfulness whenever they doubt it. 
