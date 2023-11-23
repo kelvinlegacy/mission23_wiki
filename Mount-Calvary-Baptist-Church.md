@@ -1,0 +1,1 @@
+Mount Calvary Baptist Church is located at 4742 Todds Road, Lexington, Kentucky. 
