@@ -100,7 +100,7 @@ The city of Lexington spans every square inch of Fayette county. The location of
 
 ![IMG_0430](https://github.com/Mission23/MCBCMassacre/assets/140252803/92105bb7-0bf3-457f-a14e-076162840973)
 
-## 
+## Anatomy of Attack
 
 Around 1:30am on the morning of the attack, Micah was arrested in Riverdale, Georgia for shoplifting. 
 
@@ -170,6 +170,15 @@ The bodies of those slain were placed in the baptismal which is at the front of 
 The initial operation is referred to by the CIA and others as “Frying Chicken.” 
 
 The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
+
+## Aftermath
+The CIA formed Mount Calvary Missionary Baptist Church, Inc. and began maintained an occupation of the church’s property. 
+
+They attempted a coverup of “Frying Chicken” but ended up spawning the [The Bluegrass Genocide](https://github.com/mission23/mission23/wiki/The-Bluegrass-Genocide). 
+
+Servant of the Creator Micah has been working to remove the CIA and [[Mount Calvary Missionary Baptist Church Inc|Mount Calvary Missionary Baptist Church Inc]] from the church’s property. 
+
+The Creator not His servants find the “Missionary” comical given it was in response to the [[Creator’s Mission 23 for Life on Earth|]] that the church His servant has been a lifelong member of, Mount Calvary Baptist Church, was massacred. 
 
 ## Surprise, Kill, Vanish
 The initial massacre was based on tactics written by Jacobsen in her book, _"Surprise, Kill, Vanish."_  A review of the book can be found on the CIA's [website](https://www.cia.gov/static/Review-Surprise-Kill-Vanish.pdf), a copy is stored in our repository and can be viewed [here](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20180830_cia_review_surprise_kill_vanish.pdf).  
