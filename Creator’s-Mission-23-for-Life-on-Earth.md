@@ -1,2 +1,2 @@
-# Current Status
+# Current Status: DELAYED
 Preempted by the Creator to so He may address [[the Massacre of Mount Calvary Baptist Church|The Massacre of Mount Calvary Baptist Church]], and subsequent [[The Bluegrass Genocide|The Bluegrass Genocide]] that is ongoing.
