@@ -14,6 +14,6 @@ The Creator urges everyone pray to verify anyone they are told or think is one o
 If you do not pray, simply think very hard: "Is this true?"
 
 ## Most Content Offline
-The Creator wants everyone to know that He has instructed us, His servants, to take offline or hide as much content as possible so that hopefully everyone focuses on only one thing: [the massacre at Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-of-Mount-Calvary-Baptist-Church) 
+The Creator wants everyone to know that He has instructed us, His servants, to take offline or hide as much content as possible so that hopefully everyone focuses on only one thing: [The Massacre of Mount Calvary Baptist Church](https://github.com/mission23/mission23/wiki/The-Massacre-of-Mount-Calvary-Baptist-Church) 
 
 Content will be coming back at His direction, hopefully within a month. 
