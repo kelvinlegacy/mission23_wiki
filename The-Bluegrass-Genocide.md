@@ -17,27 +17,22 @@ Each mourner killed caused new friends and family to call the church, and the cy
 Other ethnic groups are starting to feel the effects of the genocide and the primary targeted group appears to be Christian. Also affected ethnic groups include: Caucasians, Latinos, and Asians. The Bluegrass region of Kentucky is the most impacted, the death toll coming from all over North America. 
 
 ## Death Toll
-There have been over 2,000 deaths in the genocide. 
+There have been over 2,000 deaths in the genocide, with a majority of the victims coming in droves from attacks on churches during their largest worship services. 
 
 The CIA’s body disposal practices leave no trace of most of their victims. As a result, with almost all of the death toll the victim is only considered “missing” legally. 
+
+## Attacks on Churches
+The following churches have are known to have been attacked. The orders the individuals have are to leave no one alive. 
+
+### Mount Calvary Baptist Church 
+The cover-up operation that followed the massacre of Mount Calvary Baptist Churchtha is what inadvertently started the genocide. 
+
+### Mount Zion Baptist Church
+Mount Zion was a fellowship partner of Mount Calvary, the two churches often came together to worship and had for decades. Micah believes that Mount Zion likely reached out to Mount Calvary in the weeks following the massacre. 
+
+### House of God
+Mount Calvary’s minister of music on  Sundays was also the pastor of House of God, which meets on Saturday.
 
 ## The Creator’s Involvement 
 The Creator for the third time in human history has decided to become directly involved in human activities and stop this genocide.
 
-The Creator can see the future clearly. The Creator said once, “If you know all the actors, you know the situation or environment, you know exactly how it’s going to end.”
-
-If the genocide progresses as it is currently going there will be no one left in the United States except for CIA.  
-
-While this may sound good for CIA affiliated persons, eventually it would only be those who rank at the CIA. Seeing what he has the creator has added to the objectives for the Creator’s mission23 for life on Earth have been updated to address this genocide. 
-
-## Preventing a Church Attack
-We know from the Mount Calvary massacre their tactics. We also know they are planning more attacks on Christians during services in their churches. 
-
-There are 7 things you can do to protect your church family the next time your church doors are open.
-* Use a cellphone and stream your services. Get some of your sick and shut in online and watching. If that stream is interrupted make sure they know to call the church, but if someone doesn’t answer and confirm a technical problem, do not hesitate to call the police.
-* Buy some walkie talkies. Due to technology they have used you cannot trust cell phones when they launch an attack. Depending on the size of your church’s property you should be able to do this for $50 or less.
-* Each service have one member patrolling the outside of the church. If they see a group forming outside alert the member inside (by walkie). They should then immediately interrupt services, and lock the doors.
-* Reach out to your local police department and invite an officer to each service. Make sure they bring their police radio. This cannot be stressed enough.
-* Do not hire a large security firm. Many of the larger outfits are actually owned by the CIA. If your church hires, hire a small and locally reputable company. Preferably someone from your church family.
-* When calling the police, first call 911. Then call the state police post that covers your area, let them know you’ve already called 911. We have a good feeling that Kentucky State Police will not mind the second call, at all.
-* Things to lookout for on your way into church: car haulers, SUVs or vans with a lot of electronics or multiple antennas (within 1/4 to 1/2 mile of the church), and suddenly degraded or no cell phones voice or data coverage — no data is the big indicator, so stream your favorite gospel on the way to church, if it stops, run inside and stop services!
