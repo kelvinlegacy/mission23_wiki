@@ -21,17 +21,25 @@ There have been over 2,000 deaths in the genocide, with a majority of the victim
 
 The CIA’s body disposal practices leave no trace of most of their victims. As a result, with almost all of the death toll the victim is only considered “missing” legally. 
 
+According to the Creator, missing persons that are made are assigned to officers or detectives with CIA loyalties and on follow-up the person making the report is killed. 
+
+Individuals filing missing persons reports have been identified and killed, and their reports assigned to officers and detectives with CIA loyalties. 
+
 ## Attacks on Churches
 The following churches have are known to have been attacked. The orders the individuals have are to leave no one alive. 
 
 ### Mount Calvary Baptist Church 
-The cover-up operation that followed the massacre of Mount Calvary Baptist Churchtha is what inadvertently started the genocide. 
-
-### Mount Zion Baptist Church
-Mount Zion was a fellowship partner of Mount Calvary, the two churches often came together to worship and had for decades. Micah believes that Mount Zion likely reached out to Mount Calvary in the weeks following the massacre. 
+The cover-up operation that followed the massacre of Mount Calvary Baptist Church is what inadvertently started the genocide. 
 
 ### House of God
-Mount Calvary’s minister of music on  Sundays was also the pastor of House of God, which meets on Saturday.
+Mount Calvary’s ministers of music on  Sundays was also the minister of music at the House of God, which meets on Saturday.
+
+The Creator confirms House of God was massacred on Saturday November 4, 2023.
+
+### Mount Zion Baptist Church
+Mount Zion was a fellowship partner of Mount Calvary, the two churches often came together to worship and had for decades. 
+
+The Creator confirms Mount Zion was massacred on Sunday November 5, 2023. 
 
 ## The Creator’s Involvement 
 The Creator for the third time in human history has decided to become directly involved in human activities and stop this genocide.
