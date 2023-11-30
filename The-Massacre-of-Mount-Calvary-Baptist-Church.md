@@ -31,7 +31,11 @@ Make sure that’s the site where you are when reading about Mount Calvary Bapti
 From time-to-time the Servants may write an article covering any task or objective during the mission. The only place the Creator has allowed him to use is Medium. You can find them there by visiting  [medium.com/@theServantsoftheCreator](https://medium.com/@theServantsoftheCreator). 
 
 ## Always Pray to Verify 
-On a personal note, we’ve never seen Him this angry. That’s over 6 billion years of service. He wants you to pray, and if you don’t pray, think really hard about any site you visit or information you consume about Mount Calvary Baptist Church. 
+On a personal note, we’ve never seen Him this angry. That’s over 6 billion years of service. 
+
+While He does not require worship or prayer, nor does He endorse or prefer any religion, the Creator is the only one who hears and responds to them. The Creator would like anyone who does not believe anything herein to pray. 
+
+For the foreseeable future, We know there will be a lot of things said that distort the truth. The Creator suggests you simply pray anytime you consume anything about Mount Calvary Baptist Church, or any other church massacred by the CIA. 
 
 We use the hashtag [#PrayToVerify](https://github.com/Mission23/Mission23/wiki/%23PrayToVerify) a lot, that’s because some things are very hard to believe. But no one can make you feel any kind of way, He can and will when you ask Him to. 
 
