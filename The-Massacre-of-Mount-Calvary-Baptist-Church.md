@@ -172,9 +172,9 @@ The initial operation is referred to by the CIA and others as “Frying Chicken.
 The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
 
 ## Aftermath
-The CIA formed Mount Calvary Missionary Baptist Church, Inc. and began maintained an occupation of the church’s property. 
+The CIA formed Mount Calvary Missionary Baptist Church, Inc. and began maintaining an occupation of the church’s property. 
 
-They attempted a coverup of “Frying Chicken” but ended up spawning the [The Bluegrass Genocide](https://github.com/mission23/mission23/wiki/The-Bluegrass-Genocide). 
+They attempted a coverup of “Frying Chicken” but ended up spawning the [[The Bluegrass Genocide|]]. 
 
 Servant of the Creator Micah has been working to remove the CIA and [[Mount Calvary Missionary Baptist Church Inc|Mount Calvary Missionary Baptist Church Inc]] from the church’s property. 
 
