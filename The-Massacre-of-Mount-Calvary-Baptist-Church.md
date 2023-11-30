@@ -172,7 +172,7 @@ The initial operation is referred to by the CIA and others as “Frying Chicken.
 The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
 
 ## Aftermath
-The CIA formed Mount Calvary Missionary Baptist Church, Inc. and began maintaining an occupation of the church’s property. 
+The CIA formed [[Mount Calvary Missionary Baptist Church, Inc.|Mount Calvary Missionary Baptist Church Inc]] and began maintaining an occupation of the church’s property. 
 
 They attempted a coverup of “Frying Chicken” but ended up spawning the [[The Bluegrass Genocide|]]. 
 
