@@ -44,7 +44,12 @@ On the second day following the shaking, the SotC will be at Mount Calvary Bapti
 
 # Suggested Listening
 ## The Sound and the Fury
-By Vandaveer - [Listen on YouTube Music](https://music.youtube.com/watch?v=OpLeRY6NIhA&si=cmrf2QAr0f544FMZ)
+By Vandaveer
+[Listen on YouTube Music](https://music.youtube.com/watch?v=OpLeRY6NIhA&si=cmrf2QAr0f544FMZ)
+
+## When the Doves Cry
+By Prince
+[Listen on YouTube Music](https://music.youtube.com/watch?v=UG3VcCAlUgE&si=zZEWuEk9C4hfMFHa)
 
 ## 1999
 By Prince
