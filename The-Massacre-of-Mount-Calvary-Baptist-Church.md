@@ -28,11 +28,7 @@ Regardless of the link you take to reach here, make sure your make sure it begin
 Make sure that’s the site where you are when reading about Mount Calvary Baptist Church, failure to do so can result in you consuming bad information. 
 
 ### Medium
-From time-to-time Micah may write an article covering any task or objective during the mission. The only place the Creator has allowed him to use is Medium. You can find him there by going to [medium.com/@theServantsoftheCreator](https://medium.com/@theServantsoftheCreator). Articles are not intended to replace the informational or educational information provided via our wiki. 
-
-If you need to settle an argument or cite something, see this wiki. 
-
-If you need a very high-level summary of something we are involved with to share with others, Medium is a good bet. 
+From time-to-time the Servants may write an article covering any task or objective during the mission. The only place the Creator has allowed him to use is Medium. You can find them there by visiting  [medium.com/@theServantsoftheCreator](https://medium.com/@theServantsoftheCreator). 
 
 ## Always Pray to Verify 
 On a personal note, we’ve never seen Him this angry. That’s over 6 billion years of service. He wants you to pray, and if you don’t pray, think really hard about any site you visit or information you consume about Mount Calvary Baptist Church. 
