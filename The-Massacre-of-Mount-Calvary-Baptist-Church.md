@@ -131,7 +131,7 @@ Simultaneously, the group that was waiting outside came from the rear parking lo
 
 Jacobsen got up from her seat in the sanctuary and went outside and met up with the team gathering in front of the church. 
 
-Within the sanctuary, congregants noticed what appeared to be men amassing outside the windows on the western side of the church that runs along Pricetown Lane and in front of the church through opened windows. It gave the congregants that seen it the sense that the church was being surrounded, unnerving some.  
+Within the sanctuary, congregants noticed  men amassing outside the windows on the western side of the church that runs along Pricetown Lane and in front of the church through opened windows. It gave the congregants that seen it the sense that the church was being surrounded, unnerving some.  
 
 Most of the congregation jumped to its feet when they heard the noise from the group gathering in the vestibule. They were alarmed by the number of people in the small room that normally has no more than five or so waiting at any given time. Also by the fact that by that point, late in the service, usually no one is trying to enter the sanctuary. 
 
