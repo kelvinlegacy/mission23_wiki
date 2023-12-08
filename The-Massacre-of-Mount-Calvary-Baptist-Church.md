@@ -190,5 +190,16 @@ The Creator says, “Much like _’Able Danger’_ was the blueprint for 9/11.  
 ![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f)
 Jacobsen. 
 
+## Confirmation of Massacre by the CIA
+
+A CIA Officer placed the ecclesiastical clergy ring of the Rev. Dr. Felix G. Williams, III beside him in a display of pride and winning at keeping him silenced. 
+
+Micah put the ring in a safe place and the CIA has tried repeatedly to take it back. 
+
+The ring was given to Rev. Dr. Felix G. Williams, III upon his graduation from seminary and shows how he rarely removed it. 
+
+![IMG_0002](https://github.com/mission23/mission23/assets/140292625/e1a5c148-a267-40e6-8e3f-668c4d6e89a0)
+![IMG_0001](https://github.com/mission23/mission23/assets/140292625/ff393a06-410c-47ac-b390-d1e5f44d1324)
+
 ## See Also
 * [The Bluegrass Genocide](https://github.com/mission23/mission23/wiki/The-Bluegrass-Genocide)
